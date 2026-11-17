@@ -4,7 +4,7 @@ const COOKIE = 'pc_admin_session'
 const DB_KEY = 'plov-city:react:v1'
 const SESSION_TTL = 8 * 60 * 60
 const defaultDb = () => ({ menu: [], orders: [], visitors: [], adminPasswordHash: '', adminUsername: process.env.ADMIN_USERNAME || 'owner' })
-const redisConfig = () => ({ url: process.env.UPSTASH_REDIS_REST_URL || process.env.KV_REST_API_URL, token: process.env.UPSTASH_REDIS_REST_TOKEN || process.env.KV_REST_API_TOKEN })
+const redisConfig = () => ({ url: process.env.UPSTASH_REDIS_REST_URL || process.env.PLOV_CITY_KV_REST_API_URL || process.env.KV_REST_API_URL, token: process.env.UPSTASH_REDIS_REST_TOKEN || process.env.PLOV_CITY_KV_REST_API_TOKEN || process.env.KV_REST_API_TOKEN })
 
 async function redis(command) {
   const { url, token } = redisConfig()
