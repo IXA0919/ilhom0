@@ -1,4 +1,4 @@
-import { useState, useMemo } from 'react'
+import { useState } from 'react'
 import { motion, AnimatePresence } from 'framer-motion'
 import { X, Plus, Minus, ShoppingBag, Clock, Flame, Check, Sparkles, UtensilsCrossed } from 'lucide-react'
 import { useCart, generateCartItemId } from '@context/CartContext'
@@ -239,7 +239,7 @@ export default function FoodModal({ item, isOpen, onClose }) {
                           }`}
                         >
                           <div className="text-xs font-extrabold leading-tight">
-                            {v.weight}
+                            {vName}
                           </div>
                           <div className="text-[11px] font-black text-[#E69D24] mt-1">
                             {formatPrice(v.price)}

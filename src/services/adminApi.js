@@ -1,8 +1,5 @@
 import { menuItems as starterMenu } from '@data/menuData'
 
-const MENU_KEY = 'plov_city_menu_v2'
-const ORDERS_KEY = 'plov_city_orders_v2'
-const VISITORS_KEY = 'plov_city_visitors_v2'
 const VISITOR_ID_KEY = 'plov_city_visitor_uuid'
 const USER_KEY = 'plov_city_admin_user_v2'
 const SESSION_KEY = 'plov_city_admin_session_v2'
@@ -33,17 +30,11 @@ export function getVisitorId() {
 
 export async function recordVisit() {
   const visitorId = getVisitorId()
-  const now = new Date().toISOString()
-  try {
-    const raw = localStorage.getItem(VISITORS_KEY)
-    const visitors = raw ? JSON.parse(raw) : []
-    const item = visitors.find(v => v.id === visitorId)
-    if (item) { item.lastVisit = now; item.visitCount = (item.visitCount || 1) + 1 }
-    else visitors.push({ id: visitorId, firstVisit: now, lastVisit: now, visitCount: 1, hasOrdered: false })
-    localStorage.setItem(VISITORS_KEY, JSON.stringify(visitors))
-  } catch {}
   try { await api('/api/visitors', { method: 'POST', body: JSON.stringify({ visitorId }) }) }
-  catch (error) { console.warn('Tashrifni umumiy bazaga yuborib bo‘lmadi:', error.message) }
+  catch (error) {
+    console.warn('Tashrifni umumiy bazaga yuborib bo‘lmadi:', error.message)
+    return { success: false, error: error.message }
+  }
   return { success: true }
 }
 
@@ -55,47 +46,23 @@ export async function recordOrder(order) {
     visitorId: getVisitorId(),
     status: order.status || 'new',
   }
-  try {
-    await api('/api/orders', { method: 'POST', body: JSON.stringify(completeOrder) })
-  } catch (error) {
-    try {
-      const saved = JSON.parse(localStorage.getItem(ORDERS_KEY) || '[]')
-      saved.unshift(completeOrder)
-      localStorage.setItem(ORDERS_KEY, JSON.stringify(saved))
-    } catch {}
-    throw error
-  }
-  try {
-    const saved = JSON.parse(localStorage.getItem(ORDERS_KEY) || '[]')
-    saved.unshift(completeOrder)
-    localStorage.setItem(ORDERS_KEY, JSON.stringify(saved))
-  } catch {}
+  await api('/api/orders', { method: 'POST', body: JSON.stringify(completeOrder) })
   return { success: true, order: completeOrder }
 }
 
 export async function getMenu() {
   try {
     const { menu } = await api('/api/menu')
-    if (Array.isArray(menu) && menu.length) {
-      localStorage.setItem(MENU_KEY, JSON.stringify(menu))
-      return menu
-    }
+    if (Array.isArray(menu) && menu.length) return menu
   } catch (error) {
     console.warn('Umumiy menyu yuklanmadi:', error.message)
   }
-  try {
-    const raw = localStorage.getItem(MENU_KEY)
-    const saved = raw ? JSON.parse(raw) : null
-    if (Array.isArray(saved) && saved.length) return saved
-  } catch {}
-  try { localStorage.setItem(MENU_KEY, JSON.stringify(starterMenu)) } catch {}
   return starterMenu
 }
 
 export async function saveMenu(menu) {
   if (!Array.isArray(menu)) throw new Error('Menyu ro‘yxat bo‘lishi lozim')
   await api('/api/admin/menu', { method: 'PUT', body: JSON.stringify({ menu }) })
-  localStorage.setItem(MENU_KEY, JSON.stringify(menu))
   window.dispatchEvent(new CustomEvent('plov-menu-updated', { detail: menu }))
   return { success: true, count: menu.length }
 }

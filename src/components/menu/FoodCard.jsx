@@ -1,5 +1,5 @@
 import { useState } from 'react'
-import { Plus, Minus, Eye, Flame, ShoppingBag, Sparkles } from 'lucide-react'
+import { Plus, Minus, Eye, Flame, Sparkles } from 'lucide-react'
 import { useCart, generateCartItemId } from '@context/CartContext'
 import { useLanguage } from '@context/LanguageContext'
 import { formatPrice } from '@utils'

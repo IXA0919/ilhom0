@@ -11,16 +11,7 @@ export default function MenuSection() {
   const [activeCategory, setActiveCategory] = useState('all')
   const [searchQuery, setSearchQuery] = useState('')
   const [selectedItem, setSelectedItem] = useState(null)
-  const [items, setItems] = useState(() => {
-    try {
-      const raw = localStorage.getItem('plov_city_menu_v2')
-      if (raw) {
-        const parsed = JSON.parse(raw)
-        if (Array.isArray(parsed) && parsed.length > 0) return parsed
-      }
-    } catch {}
-    return menuItems
-  })
+  const [items, setItems] = useState(menuItems)
 
   useEffect(() => {
     let active = true

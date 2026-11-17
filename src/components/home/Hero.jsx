@@ -1,10 +1,10 @@
 import { motion } from 'framer-motion'
-import { ArrowRight, Sparkles, Clock, Award, Star, Flame, ShieldCheck } from 'lucide-react'
+import { ArrowRight, Sparkles, Clock, Star, Flame, ShieldCheck } from 'lucide-react'
 import { useLanguage } from '@context/LanguageContext'
 import { scrollToId } from '@utils'
 
 export default function Hero() {
-  const { t, lang } = useLanguage()
+  const { lang } = useLanguage()
 
   // Sarlavha va matnlarning ko'p tilli variantlari
   const titles = {

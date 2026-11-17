@@ -39,9 +39,13 @@ export const storage = {
     } catch { return fallback }
   },
   set: (key, value) => {
-    try { localStorage.setItem(key, JSON.stringify(value)) } catch {}
+    try { localStorage.setItem(key, JSON.stringify(value)) } catch {
+      // Storage can be disabled in private browsing modes.
+    }
   },
-  remove: (key) => { try { localStorage.removeItem(key) } catch {} },
+  remove: (key) => { try { localStorage.removeItem(key) } catch {
+    // Storage can be disabled in private browsing modes.
+  } },
 }
 
 /**

@@ -13,7 +13,6 @@ import {
   LogOut,
   Package,
   Pencil,
-  Percent,
   Plus,
   RefreshCw,
   Save,
@@ -771,7 +770,7 @@ export default function AdminPanel() {
     }
 
     try {
-      const res = await changeAdminPassword({
+      await changeAdminPassword({
         currentPassword: currentPass,
         newPassword: newPass,
         newUsername: newUsername,

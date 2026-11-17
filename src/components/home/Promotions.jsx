@@ -1,6 +1,6 @@
 import { useState, useRef } from 'react'
 import { motion, AnimatePresence } from 'framer-motion'
-import { ChevronLeft, ChevronRight, ShoppingBag, CheckCircle2, Sparkles, Tag, Users, Flame } from 'lucide-react'
+import { ChevronLeft, ChevronRight, ShoppingBag, CheckCircle2, Sparkles, Tag, Flame } from 'lucide-react'
 import { useCart } from '@context/CartContext'
 import { useLanguage } from '@context/LanguageContext'
 import { formatPrice } from '@utils'

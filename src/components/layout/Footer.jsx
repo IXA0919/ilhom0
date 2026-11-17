@@ -1,5 +1,5 @@
 import { useLanguage } from '@context/LanguageContext'
-import { Phone, MapPin, Clock, Send, Instagram, ArrowUpRight, Flame, Heart } from 'lucide-react'
+import { Phone, Clock, Send, Instagram, ArrowUpRight, Heart, ShieldCheck } from 'lucide-react'
 
 export default function Footer() {
   const { lang } = useLanguage()
@@ -177,19 +177,19 @@ export default function Footer() {
             <div className="space-y-3 text-xs text-stone-300">
               <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
                 <div className="font-bold text-white text-sm">1. Chilonzor Markazi</div>
-                <div className="text-stone-400">Bunyodkor shoh ko'chasi 42 (Novza metro)</div>
+                <div className="text-stone-400">Bunyodkor shoh ko&apos;chasi 42 (Novza metro)</div>
                 <div className="text-gold font-medium">+998 71 200-00-01</div>
               </div>
 
               <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
                 <div className="font-bold text-white text-sm">2. Yunusobod</div>
-                <div className="text-stone-400">Amir Temur shoh ko'chasi 108 (Shahriston metro)</div>
+                <div className="text-stone-400">Amir Temur shoh ko&apos;chasi 108 (Shahriston metro)</div>
                 <div className="text-gold font-medium">+998 71 200-00-02</div>
               </div>
 
               <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
-                <div className="font-bold text-white text-sm">3. O'rikzor</div>
-                <div className="text-stone-400">Uchtepa tumani, O'rikzor bozori bosh kirishi</div>
+                <div className="font-bold text-white text-sm">3. O&apos;rikzor</div>
+                <div className="text-stone-400">Uchtepa tumani, O&apos;rikzor bozori bosh kirishi</div>
                 <div className="text-gold font-medium">+998 71 200-00-03</div>
               </div>
             </div>

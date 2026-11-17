@@ -80,9 +80,6 @@ export default function CheckoutModal({ isOpen, onClose, onSuccess }) {
     if (errors.phone) setErrors((prev) => ({ ...prev, phone: null }))
   }
 
-  // To'liq telefon satri
-  const fullPhoneString = `+998 ${rawPhoneDigits}`
-
   // ─── VALIDATSIYA VA YUBORISH ───
   const handleSubmit = async (e) => {
     e.preventDefault()

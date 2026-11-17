@@ -67,7 +67,7 @@ export const branches = [
   },
 ]
 
-export function isBranchOpen(branch) {
+export function isBranchOpen(_branch) {
   const now = new Date()
   const hours = now.getHours()
   return hours >= 9 && hours < 23

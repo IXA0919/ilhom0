@@ -20,7 +20,7 @@ export function useIntersectionObserver(options = {}) {
 
     observer.observe(el)
     return () => observer.disconnect()
-  }, [])
+  }, [options])
 
   return { ref, isIntersecting }
 }
@@ -87,7 +87,9 @@ export function useLocalStorage(key, initialValue) {
       const valueToStore = value instanceof Function ? value(storedValue) : value
       setStoredValue(valueToStore)
       window.localStorage.setItem(key, JSON.stringify(valueToStore))
-    } catch {}
+    } catch {
+      // Storage can be disabled in private browsing modes.
+    }
   }
 
   return [storedValue, setValue]

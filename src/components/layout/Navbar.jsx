@@ -1,13 +1,13 @@
-import { useState, useEffect } from 'react'
+import { useState, useEffect, useMemo } from 'react'
 import { motion, AnimatePresence } from 'framer-motion'
-import { ShoppingCart, Menu, X, Flame, ShieldCheck } from 'lucide-react'
+import { ShoppingCart, Menu, X, ShieldCheck } from 'lucide-react'
 import { useCart } from '@context/CartContext'
 import { useLanguage } from '@context/LanguageContext'
 import { formatPrice, scrollToId } from '@utils'
 import { getAdminSession } from '@services/adminApi'
 
 export default function Navbar() {
-  const { totalItems, subtotal, openCart, total } = useCart()
+  const { totalItems, subtotal, openCart } = useCart()
   const { t, lang, setLang, languages } = useLanguage()
 
   const [scrolled, setScrolled] = useState(false)
@@ -16,12 +16,12 @@ export default function Navbar() {
   const [ownerToolsVisible, setOwnerToolsVisible] = useState(false)
 
   // Navigatsiya havolalari ro'yxati
-  const navLinks = [
+  const navLinks = useMemo(() => [
     { id: 'promo-section',    label: t('nav.promo') },
     { id: 'menu-section',     label: t('nav.menu') },
     { id: 'about-section',    label: t('nav.about') },
     { id: 'branches-section', label: t('nav.branches') },
-  ]
+  ], [t])
 
   // Scroll hodisasi — soyani kuchaytirish va faol bo'limni aniqlash
   useEffect(() => {

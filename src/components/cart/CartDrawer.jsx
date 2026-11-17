@@ -1,6 +1,6 @@
 import { useState } from 'react'
 import { AnimatePresence, motion } from 'framer-motion'
-import { X, ShoppingBag, Trash2, Plus, Minus, ArrowRight, Truck, Sparkles, PlusCircle } from 'lucide-react'
+import { X, ShoppingBag, Trash2, Plus, Minus, ArrowRight, Truck, Sparkles } from 'lucide-react'
 import { useCart } from '@context/CartContext'
 import { useLanguage } from '@context/LanguageContext'
 import { formatPrice } from '@utils'
