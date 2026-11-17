@@ -1,15 +1,85 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìÕÍ•MÑ…Ñ”ô™É½´€É•…Ðœ)¥µÁ½ÉÐì5…ÁA¥¸°A¡½¹”°±½¬°9…Ù¥…Ñ¥½¸°áÑ•É¹…±1¥¹¬°½µÁ…ÍÌ°¡•­¥É±”È°¡•ÙÉ½¹I¥¡Ðô™É½´€±Õ¥‘”µÉ•…Ðœ)¥µÁ½ÉÐì‰É…¹¡•Ì°¥Í	É…¹¡=Á•¸°•Ñ	É…¹¡9…µ”°•Ñ	É…¹¡‘‘É•ÍÌ°•Ñ	É…¹¡1…¹‘µ…É¬ô™É½´€‘…Ñ„½‰É…¹¡•Í…Ñ„œ)¥µÁ½ÉÐìÕÍ•1…¹Õ…”ô™É½´€½¹Ñ•áÐ½1…¹Õ…•½¹Ñ•áÐœ()•áÁ½ÉÐ‘•™…Õ±Ð™Õ¹Ñ¥½¸	É…¹¡•Ì ¤ì(€½¹ÍÐì±…¹œô€ôÕÍ•1…¹Õ…” ¤(€½¹ÍÐmÍ•±•Ñ•‘	É…¹¡%°Í•ÑM•±•Ñ•‘	É…¹¡%‘t€ôÕÍ•MÑ…Ñ”¡‰É…¹¡•ÍlÁt¹¥¤((€½¹ÍÐ…Ñ¥Ù•	É…¹ €ô‰É…¹¡•Ì¹™¥¹ ¡ˆ¤€ôøˆ¹¥€ôôôÍ•±•Ñ•‘	É…¹¡%¤ñð‰É…¹¡•ÍlÁt((€É•ÑÕÉ¸€ (€€€€ñÍ•Ñ¥½¸¥ô‰‰É…¹¡•ÌµÍ•Ñ¥½¸ˆ±…ÍÍ9…µ”ô‰Áä´ÈÀ‰œµÉ•…´´ÔÀÉ•±…Ñ¥Ù”‰½É‘•ÈµÐ‰½É‘•ÈµÍÕÉ™…”µ‰½É‘•Èˆø(€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰ÁŒµ½¹Ñ…¥¹•Èˆø(€€€€€€€€(€€€€€€€ì¼¨M…É±…Ù¡„‰±½­¤€¨½ô(€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Ñ•áÐµ•¹Ñ•Èµ…àµÜ´Éá°µàµ…ÕÑ¼µˆ´ÄÐˆø(€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰¥¹±¥¹”µ™±•à¥Ñ•µÌµ•¹Ñ•È…À´ÈÁà´Ì¸ÔÁä´Ä¸ÔÉ½Õ¹‘•µ™Õ±°‰œµ‰É…¹¼ÄÀ‰½É‘•È‰½É‘•Èµ‰É…¹¼ÈÀÑ•áÐµ‰É…¹Ñ•áÐµáÌ™½¹Ðµ‰½±ÕÁÁ•É…Í”ÑÉ…­¥¹œµÝ¥‘•Èµˆ´Ìˆø(€€€€€€€€€€€€ñ5…ÁA¥¸Í¥é”õìÄÑô±…ÍÍ9…µ”ô‰Ñ•áÐµ‰É…¹ˆ€¼ø(€€€€€€€€€€€€ñÍÁ…¸ø(€€€€€€€€€€€€€í±…¹œ€ôôô€ÉÔœ€ü€ŸB‡B×FF0ƒFBãBïBãBÃBïBûBÈœ€è±…¹œ€ôôô€•¸œ€ü€	É…¹ 9•ÑÝ½É¬œ€è€¥±¥…±±…ÈÑ…Éµ½ŸŠa¤ô(€€€€€€€€€€€€ð½ÍÁ…¸ø(€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€ñ È±…ÍÍ9…µ”ô‰Ñ•áÐ´Íá°µéÑ•áÐ´Õá°™½¹Ðµ‘¥ÍÁ±…ä™½¹Ðµ‰½±Ñ•áÐµ¥¹¬ÑÉ…­¥¹œµÑ¥¡Ðµˆ´Ðˆø(€€€€€€€€€€€í±…¹œ€ôôô€ÉÔœ(€€€€€€€€€€€€€€ü€ŸBwBÃF#BàƒFBãBïBãBÃBïF,ƒBÈƒB‹BÃF#BëB×B÷FBÔœ(€€€€€€€€€€€€€€è±…¹œ€ôôô€•¸œ(€€€€€€€€€€€€€€ü€=ÕÈ	É…¹¡•Ì¥¸Q…Í¡­•¹Ðœ(€€€€€€€€€€€€€€è€Q½Í¡­•¹Ñ‘…¤™¥±¥…±±…É¥µ¥èô(€€€€€€€€€€ð½ Èø((€€€€€€€€€€ñÀ±…ÍÍ9…µ”ô‰Ñ•áÐµµÕÑ•Ñ•áÐµ‰…Í”±•…‘¥¹œµÉ•±…á•ˆø(€€€€€€€€€€€í±…¹œ€ôôô€ÉÔœ(€€€€€€€€€€€€€€ü€ŸBKF/BÇB×FBãFBÔƒFBÓBûBÇB÷F/BäƒFBãBïBãBÃBìƒBÓBïF<ƒFBÃBóBûBËF/BËBûBßBÀƒBãBïBàƒBÿBûFB×FBãFBÔƒB÷BÃFƒFƒFB×BóF3B×Bä¸ƒBOBûFF?FBãBäƒBÿBïBûBÈƒBÛBÓB×FƒBËBÃFƒBëBÃBÛBÓF/BäƒBÓB×B÷F0ƒF€ÀäèÀÀƒBÓBø€ÈÌèÀÀ¸œ(€€€€€€€€€€€€€€è±…¹œ€ôôô€•¸œ(€€€€€€€€€€€€€€ü€A¥¬Ñ¡”µ½ÍÐ½¹Ù•¹¥•¹Ð‰É…¹ ™½ÈÍ•±˜µÁ¥­ÕÀ½È‘¥¹”¥¸Ý¥Ñ å½ÕÈ™…µ¥±ä¸É•Í ¡½ÐÁ±½Ø…Ý…¥ÑÌ•Ù•Éä‘…ä™É½´€ÀäèÀÀÑ¼€ÈÌèÀÀ¸œ(€€€€€€€€€€€€€€è€?Šaé¥¹¥é„•¹œÅÕ±…ä™¥±¥…±¹¤Ñ…¹±…¹œå½­¤½¥±…¹¥è‰¥±…¸Ñ…Í¡É¥˜‰ÕåÕÉ¥¹œ¸!…È­Õ¹¤€ÀäèÀÀ‘…¸€ÈÌèÀÀ…¡„¥ÍÍ¥Å¥¹„½Í Ñ…åå½È„ô(€€€€€€€€€€ð½Àø(€€€€€€€€ð½‘¥Øø((€€€€€€€ì¼¨€ÈUÍÑÕ¹±¤-…ÑÑ„QÕé¥±µ„èƒ[h‘éì¶»§q«^v\HØ\ØÚØ[\‹ÉÛ™ÙH[\˜ZÝ]ˆ\š]KÔ[™[
-‹ßBˆ]ˆÛ\ÜÓ˜[YOH™ÜšYÜšYXÛÛËLHÎ™ÜšYXÛÛËLLˆØ\N][\Ë\Ý™]Ú‚ˆˆËÊˆÚ\\Ý[ŽˆÈHš[X[Ø\ØÚØ\ÚH
-‹ßBˆ]ˆÛ\ÜÓ˜[YOH›Î˜ÛÛ\Ü[‹MÈÜXÙK^KM‚ˆØœ˜[˜Ú\Ë›X\
+import { useState } from 'react'
+import { MapPin, Phone, Clock, Navigation, ExternalLink, Compass, CheckCircle2, ChevronRight } from 'lucide-react'
+import { branches, isBranchOpen, getBranchName, getBranchAddress, getBranchLandmark } from '@data/branchesData'
+import { useLanguage } from '@context/LanguageContext'
 
-ŠHOˆÂˆÛÛœÝ\ÔÙ[XÝYH‹šYOOHÙ[XÝYœ˜[˜ÚYˆÛÛœÝ\ÓÜ[ˆH\Ðœ˜[˜ÚÜ[ŠŠB‚ˆ™]\›ˆ
-ˆ]‚ˆÙ^O^Ø‹šYBˆÛÛXÚÏ^Ê
-HOˆÙ]Ù[XÝYœ˜[˜ÚY
-‹šY
-_BˆÛ\ÜÓ˜[YO^ØÜ›Ý\™[]]™H›Ý[™YLÞMˆ˜[œÚ][Û‹X[\˜][Û‹LÌÝ\œÛÜ‹\Ú[\ˆ›Ü™\ˆ	Âˆ\ÔÙ[XÝYˆÈ	Ø™Ë]Ú]H›Ü™\‹Xœ˜[™ÚYÝË]Ø\›K[Èš[™ËLˆš[™ËXœ˜[™ÌL]˜[œÛ]K^KLIÂˆˆ	Ø™Ë]Ú]KÎÝ™\Ž˜™Ë]Ú]H›Ü™\‹\Ý\™˜XÙKX›Ü™\ˆÚYÝË]Ø\›HÝ™\ŽœÚYÝË]Ø\›K[Y	ÂˆXBˆ‚ˆ]ˆÛ\ÜÓ˜[YOH™›^›^XÛÛÛN™›^\›ÝÈÛNš][\Ë\Ý\\ÝYžKX™]ÙY[ˆØ\M‚ˆˆËÊˆÚ\XIÛ[[Ý\ˆ
-‹ßBˆ]ˆÛ\ÜÓ˜[YOH™›^LHÜXÙK^KL‹H‚ˆ]ˆÛ\ÜÓ˜[YOH™›^][\ËXÙ[\ˆØ\LÈ‚ˆÜ[ˆÛ\ÜÓ˜[YOH^LžLˆ›Ý[™YLž™ËXœ˜[™[YÚÍŒžØ‹™[[Úš_OÜÜ[‚ˆ]‚ˆ]ˆÛ\ÜÓ˜[YOH™›^][\ËXÙ[\ˆØ\Lˆ‚ˆÈÛ\ÜÓ˜[YOH^[È›ÛX›Û^Z[šÈÜ›Ý\ZÝ™\Ž^Xœ˜[™˜[œÚ][Û‹XÛÛÜœÈ‚ˆÙÙ]œ˜[˜Ú˜[YJ‹[™Ê_BˆÚÏ‚ˆØ‹š\ÓXZ[ˆ	‰ˆ
-ˆÜ[ˆÛ\ÜÓ˜[YOHœLˆKLH›Ý[™YY[^VÌLH›ÛX›Û™ËX[X™\‹LL^X[X™\‹N›Ü™\ˆ›Ü™\‹X[X™\‹LŒ‚ˆÛ[™ÈOOH	ÜIÈÈ	ô$ô.ô,4,´/tbô.IÈˆ[™ÈOOH	Ù[‰ÈÈ	ÓXZ[‰Èˆ	Ð\ÛÜÚ^IßBˆÜÜ[‚ˆ
-_BˆÙ]‚ˆÜ[‚ˆÛ\ÜÓ˜[YO^Ø[›[™KY›^][\ËXÙ[\ˆØ\LKH^^È›Û\Ù[ZX›Û]LH	Âˆ\ÓÜ[ˆÈ	Ý^Y[Y\˜[MÌ	Èˆ	Ý^\™YMŒ	ÂˆXBˆj¹âžkºwµçhºÚn¶Šâ‚)Ú–Ú$zw(º{uçMS¢Ö¥¢ëiºÙbë5                       >
+export default function Branches() {
+  const { lang } = useLanguage()
+  const [selectedBranchId, setSelectedBranchId] = useState(branches[0].id)
+
+  const activeBranch = branches.find((b) => b.id === selectedBranchId) || branches[0]
+
+  return (
+    <section id="branches-section" className="py-20 bg-cream-50 relative border-t border-surface-border">
+      <div className="pc-container">
+        
+        {/* Sarlavha bloki */}
+        <div className="text-center max-w-2xl mx-auto mb-14">
+          <div className="inline-flex items-center gap-2 px-3.5 py-1.5 rounded-full bg-brand/10 border border-brand/20 text-brand text-xs font-bold uppercase tracking-wider mb-3">
+            <MapPin size={14} className="text-brand" />
+            <span>
+              {lang === 'ru' ? 'Ð¡ÐµÑ‚ÑŒ Ñ„Ð¸Ð»Ð¸Ð°Ð»Ð¾Ð²' : lang === 'en' ? 'Branch Network' : 'Filiallar tarmogâ€˜i'}
+            </span>
+          </div>
+
+          <h2 className="text-3xl md:text-5xl font-display font-bold text-ink tracking-tight mb-4">
+            {lang === 'ru'
+              ? 'ÐÐ°ÑˆÐ¸ Ñ„Ð¸Ð»Ð¸Ð°Ð»Ñ‹ Ð² Ð¢Ð°ÑˆÐºÐµÐ½Ñ‚Ðµ'
+              : lang === 'en'
+              ? 'Our Branches in Tashkent'
+              : 'Toshkentdagi filiallarimiz'}
+          </h2>
+
+          <p className="text-muted text-base leading-relaxed">
+            {lang === 'ru'
+              ? 'Ð’Ñ‹Ð±ÐµÑ€Ð¸Ñ‚Ðµ ÑƒÐ´Ð¾Ð±Ð½Ñ‹Ð¹ Ñ„Ð¸Ð»Ð¸Ð°Ð» Ð´Ð»Ñ ÑÐ°Ð¼Ð¾Ð²Ñ‹Ð²Ð¾Ð·Ð° Ð¸Ð»Ð¸ Ð¿Ð¾ÑÐµÑ‚Ð¸Ñ‚Ðµ Ð½Ð°Ñ Ñ ÑÐµÐ¼ÑŒÐµÐ¹. Ð“Ð¾Ñ€ÑÑ‡Ð¸Ð¹ Ð¿Ð»Ð¾Ð² Ð¶Ð´ÐµÑ‚ Ð²Ð°Ñ ÐºÐ°Ð¶Ð´Ñ‹Ð¹ Ð´ÐµÐ½ÑŒ Ñ 09:00 Ð´Ð¾ 23:00.'
+              : lang === 'en'
+              ? 'Pick the most convenient branch for self-pickup or dine in with your family. Fresh hot plov awaits every day from 09:00 to 23:00.'
+              : 'Oâ€˜zingizga eng qulay filialni tanlang yoki oilangiz bilan tashrif buyuring. Har kuni 09:00 dan 23:00 gacha issiqina osh tayyor!'}
+          </p>
+        </div>
+
+        {/* 2 Ustunli Katta Tuzilma: Chapda Kartochkalar, O'ngda Interaktiv Xarita/Panel */}
+        <div className="grid grid-cols-1 lg:grid-cols-12 gap-8 items-stretch">
+          
+          {/* Chap ustun: 3 ta filial kartochkasi */}
+          <div className="lg:col-span-7 space-y-4">
+            {branches.map((b) => {
+              const isSelected = b.id === selectedBranchId
+              const isOpen = isBranchOpen(b)
+
+              return (
+                <div
+                  key={b.id}
+                  onClick={() => setSelectedBranchId(b.id)}
+                  className={`group relative rounded-3xl p-6 transition-all duration-300 cursor-pointer border ${
+                    isSelected
+                      ? 'bg-white border-brand shadow-warm-lg ring-2 ring-brand/10 -translate-y-0.5'
+                      : 'bg-white/80 hover:bg-white border-surface-border shadow-warm hover:shadow-warm-md'
+                  }`}
+                >
+                  <div className="flex flex-col sm:flex-row sm:items-start justify-between gap-4">
+                    
+                    {/* Chap ma'lumotlar */}
+                    <div className="flex-1 space-y-2.5">
+                      <div className="flex items-center gap-3">
+                        <span className="text-2xl p-2 rounded-2xl bg-brand-light/60">{b.emoji}</span>
+                        <div>
+                          <div className="flex items-center gap-2">
+                            <h3 className="text-lg font-bold text-ink group-hover:text-brand transition-colors">
+                              {getBranchName(b, lang)}
+                            </h3>
+                            {b.isMain && (
+                              <span className="px-2 py-0.5 rounded-full text-[10px] font-bold bg-amber-100 text-amber-800 border border-amber-200">
+                                {lang === 'ru' ? 'Ð“Ð»Ð°Ð²Ð½Ñ‹Ð¹' : lang === 'en' ? 'Main' : 'Asosiy'}
+                              </span>
+                            )}
+                          </div>
+                          <span
+                            className={`inline-flex items-center gap-1.5 text-xs font-semibold mt-0.5 ${
+                              isOpen ? 'text-emerald-700' : 'text-red-600'
+                            }`}
+                          >
                             <span className={`w-2 h-2 rounded-full ${isOpen ? 'bg-emerald-500 animate-pulse' : 'bg-red-500'}`} />
                             {isOpen
                               ? (lang === 'ru' ? 'Ð¡ÐµÐ¹Ñ‡Ð°Ñ Ð¾Ñ‚ÐºÑ€Ñ‹Ñ‚Ð¾' : lang === 'en' ? 'Open Now' : 'Hozir ochiq')
@@ -45,10 +115,148 @@ _BˆÙ]‚ˆÜ[‚ˆ
                           <span>{b.phone}</span>
                         </a>
                         <span className="text-muted">
-                          {lang === 'ru' ? 'Ð•Ð¶ÐµÐ´Ð½ÐµÐ²Ð½Ð¾: 09:00 - 23:00' : lang === 'en' ? 'DailÖÚ$z{-®éÜj×¢“£Ò#3£r¢t†"·Væ“¢“£Ò#3£wÐ¢Â÷7ãà¢ÂöF—cà¢ÂöF—cà ¢²ò¢òværF&c¢FæÆ6‚ò¶òw&—6‚&VÆv—6’¢÷Ð¢ÆF—b6Æ74æÖSÒ&fÆW‚6Ó¦fÆW‚Ö6öÂ—FV×2Ö6VçFW"§W7F–g’Ö&WGvVVâ6Ó¦§W7F–g’×7F'BvÓ"BÓ"6Ó§BÓ#à¢ÆF—b6Æ74æÖS×¶rÓ‚‚Ó‚&÷VæFVBÖgVÆÂfÆW‚—FV×2Ö6VçFW"§W7F–g’Ö6VçFW"G&ç6—F–öâÖÆÂG°¢—56VÆV7FVBòv&rÖ'&æBFW‡B×v†—FR6†F÷rÖ'&æB×6Òr¢v&rÖ7&VÒÓ#FW‡BÖ×WFVBw&÷WÖ†÷fW#§FW‡BÖ–æ²p¢ÖÓà¢Ä6†Wg&öå&–v‡B6—¦S×³‡Ò6Æ74æÖS×¶G&ç6—F–öâ×G&ç6f÷&ÒGW&F–öâÓ#G¶—56VÆV7FVBòw&÷FFRÓ“6Ó§&÷FFRÓr¢rwÖÒóà¢ÂöF—cà¢ÂöF—cà ¢ÂöF—cà ¢²ò¢VÆ–Æ–¶Æ"FVvÆ&’¢÷Ð¢ÆF—b6Æ74æÖSÒ&fÆW‚fÆW‚×w&vÓãRBÓ2×BÓ2&÷&FW"×B&÷&FW"×7W&f6RÖ&÷&FW"óc#à¢¶"æfVGW&W2æÖ‚†fVBÂf’’Óâ€¢Ç7â¶W“×¶f—Ò6Æ74æÖSÒ&–æÆ–æRÖfÆW‚—FV×2Ö6VçFW"vÓFW‡BÕ³…ÒföçBÖÖVF—VÒFW‡BÖ×WFVB&rÖ7&VÒÓ‚Ó"ãR’ÓãR&÷VæFVBÖÆr&÷&FW"&÷&FW"×7W&f6RÖ&÷&FW"óC#à¢Ä6†V6´6—&6ÆS"6—¦S×³Ò6Æ74æÖSÒ'FW‡BÖVÖW&ÆBÓc"óà¢¶fVGÐ¢Â÷7ãà¢’—Ð¢ÂöF—cà ¢ÂöF—cà¢¢Ò—Ð¢ÂöF—cà ¢²ò¢òværW7GVã¢7F–Æ—¦G6—––Æ–ævâ–çFW&·F—b†&—FòÆö¶G6—–æVÆ’¢÷Ð¢ÆF—b6Æ74æÖSÒ&Æs¦6öÂ×7âÓRfÆW‚fÆW‚Ö6öÂ#à¢ÆF—b6Æ74æÖSÒ'7F–6·’F÷Ó#‚&÷VæFVBÓ7†Â&r×v†—FR&÷&FW"&÷&FW"×7W&f6RÖ&÷&FW"6†F÷r×v&ÒÖÆr÷fW&fÆ÷rÖ†–FFVâfÆW‚fÆW‚Ö6öÂ‚ÖgVÆÂÖ–âÖ‚Õ³Cc…Ò#à¢ ¢²ò¢f—§VÂ†&—FÖö6·W—6Ö’¢÷Ð¢ÆF—b6Æ74æÖSÒ'&VÆF—fR‚ÓcB6Ó¦‚Ós"&rÖw&F–VçB×FòÖ'"g&öÒÖÖ&W"ÓSf–Ö÷&ævRÓSFòÖ7&VÒÓ#÷fW&fÆ÷rÖ†–FFVâfÆW‚—FV×2Ö6VçFW"§W7F–g’Ö6VçFW"&÷&FW"Ö"&÷&FW"×7W&f6RÖ&÷&FW"#à¢²ò¢vVöÖWG&–²†&—F6†—¦—Æ&’…5drw&–B’¢÷Ð¢ÆF—b6Æ74æÖSÒ&'6öÇWFR–ç6WBÓ÷6—G’Ó#ö–çFW"ÖWfVçG2ÖæöæR#à¢Ç7frv–GFƒÒ#R"†V–v‡CÒ#R"†ÖÆç3Ò&‡GG¢ò÷wwrçs2æ÷&ró#÷5š®x§‚ÚîÆ­yÚ.¶›­¢¸ Šv¥¶‰Ê.žÝyÓTèµ©hºÚn¶X§zÍ]™È‚ˆYœÏ‚ˆ]\›ˆYH™ÜšY\]\›ˆˆÚYHˆZYÚHˆ]\›•[š]ÏH\Ù\”ÜXÙSÛ•\ÙH‚ˆ]H“Hˆš[H››Û™HˆÝ›ÚÙOHˆÑMLQˆˆÝ›ÚÙUÚYHŒŽˆÏ‚ˆÜ]\›‚ˆÙYœÏ‚ˆ™XÝÚYHŒL	HˆZYÚHŒL	Hˆš[H\›
-ÙÜšY\]\›ŠHˆÏ‚ˆÜÝ™Ï‚ˆÙ]‚‚ˆËÊˆÚ[][]YX\›ØYÈ	ˆXØÙ[È
-‹ßBˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]H[œÙ]L‚ˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]HËVÌN	WHLÈ™Ë]Ú]KÍÌ›Ý]KLLˆÜLŒ[YLŒÚYÝË\ÛHˆÏ‚ˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]HËVÌN	WHM™Ë]Ú]KÍÌ\›Ý]KMHÜLÌˆ[YLŒÚYÝË\ÛHˆÏ‚ˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]HËLŽLŽ›Ý[™YY[›Ü™\‹M›Ü™\‹]Ú]KÎ™ËY[Y\˜[LLÍÜLLšYÚLLˆÏ‚ˆÙ]‚‚ˆËÊˆX\šØ^š^H[ˆ
-XÝ]™Hœ˜[˜Ú
-H
-‹ßBˆ]ˆÛ\ÜÓ˜[YOHœ™[]]™H‹LL›^›^XÛÛ][\ËXÙ[\ˆ[š[X]KX›Ý[˜ÙH‚ˆ]ˆÛ\ÜÓ˜[YOHœLÈKLKH›Ý[™YY[™ËZ[šÈ^]Ú]H^^È›ÛX›ÛÚYÝËLž›^][\ËXÙ[\ˆØ\LKHX‹LKH›Ü™\ˆ›Ü™\‹]Ú]KÌŒ‚ˆÜ[žØXÝ]™Pœ˜[˜Ú™[[Úš_OÜÜ[‚ˆÜ[žÙÙ]œ˜[˜Ú˜[YJXÝ]™Pœ˜[˜Ú[™Ê_OÜÜ[‚ˆÙ]‚ˆ]ˆÛ\ÜÓ˜[YOHËLLˆLLˆ›Ý[™YY[™ËXœ˜[™^]Ú]H›^][\ËXÙ[\ˆ\ÝYžKXÙ[\ˆÚYÝËLžÚYÝËXœ˜[™ÍLš[™ËMš[™Ë]Ú]H‚ˆX\[ˆÚ^™O^ÌHÛ\ÜÓ˜[YOH™š[]Ú]HˆÏ‚ˆÙ]‚ˆ]ˆÛ\ÜÓ˜[YOHËMLKH™ËX›XÚËÌŒ›Ý[™YY[›\‹VÌœH]LHˆÏ‚ˆÙ]‚‚ˆËÊˆ\YH[™›ÈÝ™\›^H
-‹ßBˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]HÜMYM‹LŒ‚ˆ]ˆÛ\ÜÓ˜[YOHœLÈKLH›Ý[™Y^™Ë]Ú]KÎL˜XÚÙ›ÜX›\‹[Y›Ü™\ˆ›Ü™\‹\Ý\™˜XÙKX›Ü™\ˆ^^È›ÛX›Û^Z[šÈÚYÝË\ÛH›^][\ËXÙ[\ˆØ\LKH‚ˆÛØÚÈÚ^™O^ÌLŸHÛ\ÜÓ˜[YOH^Xœ˜[™ˆÏ‚ˆÜ[ŒNŒHŒÎŒÜÜ[‚ˆÙ]‚ˆÙ]‚‚ˆ]ˆÛ\ÜÓ˜[YOH˜XœÛÛ]HÜMšYÚM‹LŒ‚ˆ]ˆÛ\Üõ¶‰žËkºwµçEµ”ô‰Áà´ÌÁä´ÄÉ½Õ¹‘•µá°‰œµ•µ•É…±´ØÀÀÑ•áÐµÝ¡¥Ñ”Ñ•áÐµáÌ™½¹Ðµ‰½±Í¡…‘½ÜµÍ´ˆø(€€€€€€€€€€€€€€€€€€€í±…¹œ€ôôô€ÉÔœ€ü€ŸBCBëFBãBËB÷F/BäƒFBãBïBãBÃBìœ€è±…¹œ€ôôô€•¸œ€ü€Ñ¥Ù”	É…¹ œ€è€Q…¹±…¹…¸™¥±¥…°ô(€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€ì¼¨Q…¹±…¹…¸™¥±¥…°Ñ…™Í¥±½Ñ±…É¤Ù„a…É¥Ñ„ÑÕµ…±…É¤€¨½ô(€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰À´Ø™±•à´Ä™±•à™±•àµ½°©ÕÍÑ¥™äµ‰•ÑÝ••¸ÍÁ…”µä´Ô‰œµÝ¡¥Ñ”ˆø(€€€€€€€€€€€€€€€€ñ‘¥Øø(€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Ñ•áÐµáÌÕÁÁ•É…Í”ÑÉ…­¥¹œµÝ¥‘•È™½¹Ðµ‰½±Ñ•áÐµ‰É…¹µˆ´Äˆø(€€€€€€€€€€€€€€€€€€€í±…¹œ€ôôô€ÉÔœ€ü€ŸBcB÷FBûFBóBÃFBãF<ƒBøƒBïBûBëBÃFBãBàœ€è±…¹œ€ôôô€•¸œ€ü€1½…Ñ¥½¸•Ñ…¥±Ìœ€è€5…¹é¥°Ñ…™Í¥±½Ñ¤ô(€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€ñ Ð±…ÍÍ9…µ”ô‰Ñ•áÐµá°™½¹Ðµ‰½±Ñ•áÐµ¥¹¬µˆ´Èˆø(€€€€€€€€€€€€€€€€€€€í•Ñ	É…¹¡9…µ”¡…Ñ¥Ù•	É…¹ °±…¹œ¥ô(€€€€€€€€€€€€€€€€€€ð½ Ðø(€€€€€€€€€€€€€€€€€€ñÀ±…ÍÍ9…µ”ô‰Ñ•áÐµÍ´Ñ•áÐµ¥¹¬™½¹Ðµµ•‘¥Õ´µˆ´Äˆø(€€€€€€€€€€€€€€€€€€€í•Ñ	É…¹¡‘‘É•ÍÌ¡…Ñ¥Ù•	É…¹ °±…¹œ¥ô(€€€€€€€€€€€€€€€€€€ð½Àø(€€€€€€€€€€€€€€€€€€ñÀ±…ÍÍ9…µ”ô‰Ñ•áÐµáÌÑ•áÐµµÕÑ•µˆ´Ðˆø(€€€€€€€€€€€€€€€€€€€€ñÍÑÉ½¹œùí±…¹œ€ôôô€ÉÔœ€ü€ŸB{FBãB×B÷FBãF èœ€è±…¹œ€ôôô€•¸œ€ü€1…¹‘µ…É¬èœ€è€5¿Ša±©…°èôð½ÍÑÉ½¹œøí•Ñ	É…¹¡1…¹‘µ…É¬¡…Ñ¥Ù•	É…¹ °±…¹œ¥ô(€€€€€€€€€€€€€€€€€€ð½Àø((€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰À´Ì¸ÔÉ½Õ¹‘•´Éá°‰œµÉ•…´´ÄÀÀ‰½É‘•È‰½É‘•ÈµÍÕÉ™…”µ‰½É‘•ÈÑ•áÐµáÌÑ•áÐµ¥¹¬¼àÀ™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ‰•ÑÝ••¸ˆø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰™½¹Ðµµ•‘¥Õ´ˆùí±…¹œ€ôôô€ÉÔœ€ü€ŸB‹B×BïB×FBûBôƒFBãBïBãBÃBïBÀèœ€è±…¹œ€ôôô€•¸œ€ü€	É…¹ A¡½¹”èœ€è€¥±¥…°Ñ•±•™½¹¤èôð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜õíÑ•°è‘í…Ñ¥Ù•	É…¹ ¹Á¡½¹•õô±…ÍÍ9…µ”ô‰™½¹Ðµ‰½±Ñ•áÐµ‰É…¹¡½Ù•ÈéÕ¹‘•É±¥¹”ˆø(€€€€€€€€€€€€€€€€€€€€€í…Ñ¥Ù•	É…¹ ¹Á¡½¹•ô(€€€€€€€€€€€€€€€€€€€€ð½„ø(€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€€ì¼¨e…¹‘•à5…ÁÌÙ„½½±”5…ÁÌÑÕµ…±…É¤€¨½ô(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰É¥É¥µ½±Ì´È…À´ÌÁÐ´Èˆø(€€€€€€€€€€€€€€€€€€ñ„(€€€€€€€€€€€€€€€€€€€¡É•˜õí…Ñ¥Ù•	É…¹ ¹å…¹‘•á5…ÁUÉ±ô(€€€€€€€€€€€€€€€€€€€Ñ…É•Ðô‰}‰±…¹¬ˆ(€€€€€€€€€€€€€€€€€€€É•°ô‰¹½É•™•ÉÉ•Èˆ(€€€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”ô‰™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ•¹Ñ•È…À´ÈÁä´ÌÁà´ÐÉ½Õ¹‘•´Éá°‰œµÉ•´ÔÀÑ•áÐµÉ•´ÜÀÀ¡½Ù•Èé‰œµÉ•´ÄÀÀ‰½É‘•È‰½É‘•ÈµÉ•´ÈÀÀ™½¹Ðµ‰½±Ñ•áÐµáÌÑÉ…¹Í¥Ñ¥½¸µ…±°Í¡…‘½ÜµÍ´¡½Ù•ÈéÍ¡…‘½Üˆ(€€€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€€€ñ9…Ù¥…Ñ¥½¸Í¥é”õìÄÑô±…ÍÍ9…µ”ô‰Ñ•áÐµÉ•´ØÀÀˆ€¼ø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸ùe…¹‘•à5…ÁÌð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€ñáÑ•É¹…±1¥¹¬Í¥é”õìÄÉô±…ÍÍ9…µ”ô‰½Á…¥Ñä´ÜÀˆ€¼ø(€€€€€€€€€€€€€€€€€€ð½„ø((€€€€€€€€€€€€€€€€€€ñ„(€€€€€€€€€€€€€€€€€€€¡É•˜õí…Ñ¥Ù•	É…¹ ¹½½±•5…ÁUÉ±ô(€€€€€€€€€€€€€€€€€€€Ñ…É•Ðô‰}‰±…¹¬ˆ(€€€€€€€€€€€€€€€€€€€É•°ô‰¹½É•™•ÉÉ•Èˆ(€€€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”ô‰™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ•¹Ñ•È…À´ÈÁä´ÌÁà´ÐÉ½Õ¹‘•´Éá°‰œµÍ­ä´ÔÀÑ•áÐµÍ­ä´ÜÀÀ¡½Ù•Èé‰œµÍ­ä´ÄÀÀ‰½É‘•È‰½É‘•ÈµÍ­ä´ÈÀÀ™½¹Ðµ‰½±Ñ•áÐµáÌÑÉ…¹Í¥Ñ¥½¸µ…±°Í¡…‘½ÜµÍ´¡½Ù•ÈéÍ¡…‘½Üˆ(€€€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€€€ñ9…Ù¥…Ñ¥½¸Í¥é”õìÄÑô±…ÍÍ9…µ”ô‰Ñ•áÐµÍ­ä´ØÀÀˆ€¼ø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸ù½½±”5…ÁÌð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€ñáÑ•É¹…±1¥¹¬Í¥é”õìÄÉô±…ÍÍ9…µ”ô‰½Á…¥Ñä´ÜÀˆ€¼ø(€€€€€€€€€€€€€€€€€€ð½„ø(€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€ð½‘¥Øø((€€€€€€€€ð½‘¥Øø((€€€€€€ð½‘¥Øø(€€€€ð½Í•Ñ¥½¸ø(€€¤)ô
+                          {lang === 'ru' ? 'Ð•Ð¶ÐµÐ´Ð½ÐµÐ²Ð½Ð¾: 09:00 - 23:00' : lang === 'en' ? 'Daily: 09:00 - 23:00' : 'Har kuni: 09:00 - 23:00'}
+                        </span>
+                      </div>
+                    </div>
+
+                    {/* O'ng taraf: Tanlash / Ko'rish belgisi */}
+                    <div className="flex sm:flex-col items-center justify-between sm:justify-start gap-2 pt-2 sm:pt-0">
+                      <div className={`w-8 h-8 rounded-full flex items-center justify-center transition-all ${
+                        isSelected ? 'bg-brand text-white shadow-brand-sm' : 'bg-cream-200 text-muted group-hover:text-ink'
+                      }`}>
+                        <ChevronRight size={18} className={`transition-transform duration-200 ${isSelected ? 'rotate-90 sm:rotate-0' : ''}`} />
+                      </div>
+                    </div>
+
+                  </div>
+
+                  {/* Qulayliklar teglari */}
+                  <div className="flex flex-wrap gap-1.5 pt-3 mt-3 border-t border-surface-border/60">
+                    {b.features.map((feat, fi) => (
+                      <span key={fi} className="inline-flex items-center gap-1 text-[11px] font-medium text-muted bg-cream-100 px-2.5 py-0.5 rounded-lg border border-surface-border/40">
+                        <CheckCircle2 size={11} className="text-emerald-600" />
+                        {feat}
+                      </span>
+                    ))}
+                  </div>
+
+                </div>
+              )
+            })}
+          </div>
+
+          {/* O'ng ustun: Stilizatsiya qilingan Interaktiv Xarita / Lokatsiya paneli */}
+          <div className="lg:col-span-5 flex flex-col">
+            <div className="sticky top-28 rounded-3xl bg-white border border-surface-border shadow-warm-lg overflow-hidden flex flex-col h-full min-h-[460px]">
+              
+              {/* Vizual xarita mockup qismi */}
+              <div className="relative h-64 sm:h-72 bg-gradient-to-br from-amber-50 via-orange-50 to-cream-200 overflow-hidden flex items-center justify-center border-b border-surface-border">
+                {/* Geometrik xarita chiziqlari (SVG grid) */}
+                <div className="absolute inset-0 opacity-20 pointer-events-none">
+                  <svg width="100%" height="100%" xmlns="http://www.w3.org/2000/svg">
+                    <defs>
+                      <pattern id="grid-pattern" width="40" height="40" patternUnits="userSpaceOnUse">
+                        <path d="M 40 0 L 0 0 0 40" fill="none" stroke="#D94E1F" strokeWidth="0.8" />
+                      </pattern>
+                    </defs>
+                    <rect width="100%" height="100%" fill="url(#grid-pattern)" />
+                  </svg>
+                </div>
+
+                {/* Simulated Map Roads & Accents */}
+                <div className="absolute inset-0">
+                  <div className="absolute w-[180%] h-3 bg-white/70 rotate-12 top-20 -left-20 shadow-sm" />
+                  <div className="absolute w-[180%] h-4 bg-white/70 -rotate-45 top-32 -left-20 shadow-sm" />
+                  <div className="absolute w-28 h-28 rounded-full border-4 border-white/80 bg-emerald-100/40 top-10 right-10" />
+                </div>
+
+                {/* Markaziy Pin (Active Branch) */}
+                <div className="relative z-10 flex flex-col items-center animate-bounce">
+                  <div className="px-3 py-1.5 rounded-full bg-ink text-white text-xs font-bold shadow-2xl flex items-center gap-1.5 mb-1.5 border border-white/20">
+                    <span>{activeBranch.emoji}</span>
+                    <span>{getBranchName(activeBranch, lang)}</span>
+                  </div>
+                  <div className="w-12 h-12 rounded-full bg-brand text-white flex items-center justify-center shadow-2xl shadow-brand/50 ring-4 ring-white">
+                    <MapPin size={24} className="fill-white" />
+                  </div>
+                  <div className="w-4 h-1.5 bg-black/20 rounded-full blur-[2px] mt-1" />
+                </div>
+
+                {/* Tepada info overlay */}
+                <div className="absolute top-4 left-4 z-20">
+                  <div className="px-3 py-1 rounded-xl bg-white/90 backdrop-blur-md border border-surface-border text-xs font-bold text-ink shadow-sm flex items-center gap-1.5">
+                    <Clock size={12} className="text-brand" />
+                    <span>09:00 - 23:00</span>
+                  </div>
+                </div>
+
+                <div className="absolute top-4 right-4 z-20">
+                  <div className="px-3 py-1 rounded-xl bg-emerald-600 text-white text-xs font-bold shadow-sm">
+                    {lang === 'ru' ? 'ÐÐºÑ‚Ð¸Ð²Ð½Ñ‹Ð¹ Ñ„Ð¸Ð»Ð¸Ð°Ð»' : lang === 'en' ? 'Active Branch' : 'Tanlangan filial'}
+                  </div>
+                </div>
+
+              </div>
+
+              {/* Tanlangan filial tafsilotlari va Xarita tugmalari */}
+              <div className="p-6 flex-1 flex flex-col justify-between space-y-5 bg-white">
+                <div>
+                  <div className="text-xs uppercase tracking-wider font-bold text-brand mb-1">
+                    {lang === 'ru' ? 'Ð˜Ð½Ñ„Ð¾Ñ€Ð¼Ð°Ñ†Ð¸Ñ Ð¾ Ð»Ð¾ÐºÐ°Ñ†Ð¸Ð¸' : lang === 'en' ? 'Location Details' : 'Manzil tafsiloti'}
+                  </div>
+                  <h4 className="text-xl font-bold text-ink mb-2">
+                    {getBranchName(activeBranch, lang)}
+                  </h4>
+                  <p className="text-sm text-ink font-medium mb-1">
+                    {getBranchAddress(activeBranch, lang)}
+                  </p>
+                  <p className="text-xs text-muted mb-4">
+                    <strong>{lang === 'ru' ? 'ÐžÑ€Ð¸ÐµÐ½Ñ‚Ð¸Ñ€:' : lang === 'en' ? 'Landmark:' : 'Moâ€˜ljal:'}</strong> {getBranchLandmark(activeBranch, lang)}
+                  </p>
+
+                  <div className="p-3.5 rounded-2xl bg-cream-100 border border-surface-border text-xs text-ink/80 flex items-center justify-between">
+                    <span className="font-medium">{lang === 'ru' ? 'Ð¢ÐµÐ»ÐµÑ„Ð¾Ð½ Ñ„Ð¸Ð»Ð¸Ð°Ð»Ð°:' : lang === 'en' ? 'Branch Phone:' : 'Filial telefoni:'}</span>
+                    <a href={`tel:${activeBranch.phone}`} className="font-bold text-brand hover:underline">
+                      {activeBranch.phone}
+                    </a>
+                  </div>
+                </div>
+
+                {/* Yandex Maps va Google Maps tugmalari */}
+                <div className="grid grid-cols-2 gap-3 pt-2">
+                  <a
+                    href={activeBranch.yandexMapUrl}
+                    target="_blank"
+                    rel="noreferrer"
+                    className="flex items-center justify-center gap-2 py-3 px-4 rounded-2xl bg-red-50 text-red-700 hover:bg-red-100 border border-red-200 font-bold text-xs transition-all shadow-sm hover:shadow"
+                  >
+                    <Navigation size={14} className="text-red-600" />
+                    <span>Yandex Maps</span>
+                    <ExternalLink size={12} className="opacity-70" />
+                  </a>
+
+                  <a
+                    href={activeBranch.googleMapUrl}
+                    target="_blank"
+                    rel="noreferrer"
+                    className="flex items-center justify-center gap-2 py-3 px-4 rounded-2xl bg-sky-50 text-sky-700 hover:bg-sky-100 border border-sky-200 font-bold text-xs transition-all shadow-sm hover:shadow"
+                  >
+                    <Navigation size={14} className="text-sky-600" />
+                    <span>Google Maps</span>
+                    <ExternalLink size={12} className="opacity-70" />
+                  </a>
+                </div>
+
+              </div>
+
+            </div>
+          </div>
+
+        </div>
+
+      </div>
+    </section>
+  )
+}
+

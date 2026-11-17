@@ -62,3 +62,4 @@ export default function OrderSuccessModal({ isOpen, onClose, orderNumber }) {
     </AnimatePresence>
   )
 }
+

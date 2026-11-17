@@ -1,8 +1,87 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞìÕÍ•1…¹Õ…”ô™É½´€½¹Ñ•áĞ½1…¹Õ…•½¹Ñ•áĞœ)¥µÁ½ÉĞìA¡½¹”°5…ÁA¥¸°±½¬°M•¹°%¹ÍÑ…É…´°ÉÉ½İUÁI¥¡Ğ°±…µ”°!•…ÉĞô™É½´€±Õ¥‘”µÉ•…Ğœ()•áÁ½ÉĞ‘•™…Õ±Ğ™Õ¹Ñ¥½¸½½Ñ•È ¤ì(€½¹ÍĞì±…¹œô€ôÕÍ•1…¹Õ…” ¤(€½¹ÍĞå•…È€ô¹•Ü…Ñ” ¤¹•ÑÕ±±e•…È ¤((€½¹ÍĞÅÕ¥­1¥¹­Ì€ôl(€€€ì(€€€€€¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸBCBëFBãBàƒBàƒBëBûBóBÇBøœ€è±…¹œ€ôôô€•¸œ€ü€AÉ½µ½Ñ¥½¹Ì€˜½µ‰½Ìœ€è€­Í¥å…±…ÈÙ„­½µ‰½±…Èœ°(€€€€€¡É•˜è€œÁÉ½µ¼µÍ•Ñ¥½¸œ°(€€€ô°(€€€ì(€€€€€¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸBwBÃF#BÔƒBóB×B÷F8œ€è±…¹œ€ôôô€•¸œ€ü€=ÕÈ5•¹Ôœ€è€	¥é¹¥¹œµ•¹åÔœ°(€€€€€¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œ°(€€€ô°(€€€ì(€€€€€¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸBxƒB÷BÃFœ€è±…¹œ€ôôô€•¸œ€ü€‰½ÕĞUÌœ€è€	¥è¡…Å¥µ¥é‘„œ°(€€€€€¡É•˜è€œ…‰½ÕĞµÍ•Ñ¥½¸œ°(€€€ô°(€€€ì(€€€€€¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸB“BãBïBãBÃBïF,œ€è±…¹œ€ôôô€•¸œ€ü€	É…¹¡•Ìœ€è€¥±¥…±±…É¥µ¥èœ°(€€€€€¡É•˜è€œ‰É…¹¡•ÌµÍ•Ñ¥½¸œ°(€€€ô°(€t((€½¹ÍĞµ•¹Õ…Ñ•½É¥•Ì€ôl(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸB‡BËBÃBÓB×BÇB÷F/BäƒBÿBïBûBÈœ€è±…¹œ€ôôô€•¸œ€ü€]•‘‘¥¹œA±½Øœ€è€Q¿Šaä½Í¡¤œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸBŸBÃBçFBÃB÷FBëBãBäƒBÿBïBûBÈœ€è±…¹œ€ôôô€•¸œ€ü€¡…å­¡…¹„A±½Øœ€è€¡½åá½¹„½Í¡¤œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸB{FBûBÇBÃF<ƒBSB×BËBßBãFBÀœ€è±…¹œ€ôôô€•¸œ€ü€MÁ•¥…°•Ùé¥É„œ€è€•Ùé¥É„µ…áÍÕÌ½Í œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸB‡BÃBóBÃFBëBÃB÷BÓFBëBãBäƒBÿBïBûBÈœ€è±…¹œ€ôôô€•¸œ€ü€M…µ…É­…¹A±½Øœ€è€M…µ…ÉÅ…¹½Í¡¤œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸBkBÃBßF,ƒBàƒBÿB×FB×BÿB×BïBãB÷F/BÔƒF?BçFBÀœ€è±…¹œ€ôôô€•¸œ€ü€E…é¤€˜EÕ…¥°Ìœ€è€=Ğ¿ŠaÍ¡Ñ±¤E…é¤Ù„ÑÕáÕ´œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€€€ì¹…µ”è±…¹œ€ôôô€ÉÔœ€ü€ŸB‡BËB×BÛBãBäƒBCFBãFFBèœ€è±…¹œ€ôôô€•¸œ€ü€É•Í ¡¥¡Õ¬œ€è€¡¥¡Õ¬Í…±…Ñ¤œ°¡É•˜è€œµ•¹ÔµÍ•Ñ¥½¸œô°(€t((€É•ÑÕÉ¸€ (€€€€ñ™½½Ñ•È±…ÍÍ9…µ”ô‰‰œµlŒÅÅÄİtÑ•áĞµlÙtÉ•±…Ñ¥Ù”½Ù•É™±½Üµ¡¥‘‘•¸‰½É‘•ÈµĞ´Ğ‰½É‘•Èµ‰É…¹ˆø(€€€€€ì¼¨!…Í¡…µ…Ñ±¤¹½é¥¬™½¸¹ÕÉ±…¹¥Í¡±…É¤€¨½ô(€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰…‰Í½±ÕÑ”Ñ½À´À±•™Ğ´Ä¼ĞÜ´äØ ´äØ‰œµ‰É…¹¼ÄÀÉ½Õ¹‘•µ™Õ±°‰±ÕÈ´Íá°Á½¥¹Ñ•Èµ•Ù•¹ÑÌµ¹½¹”ˆ€¼ø(€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰…‰Í½±ÕÑ”‰½ÑÑ½´´ÀÉ¥¡Ğ´ÄÀÜ´àÀ ´àÀ‰œµ½±¼ÔÉ½Õ¹‘•µ™Õ±°‰±ÕÈ´Íá°Á½¥¹Ñ•Èµ•Ù•¹ÑÌµ¹½¹”ˆ€¼ø((€€€€€ì¼¨Í½Í¥äåÕÅ½É¤Q€¼±½Å„Ñ…Íµ…Í¤€¨½ô(€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰‰½É‘•Èµˆ‰½É‘•Èµİ¡¥Ñ”¼ÄÀƒ[h‘éì¶»§q«^vKLL™ËX›XÚËÌŒ‚ˆ]ˆÛ\ÜÓ˜[YOHœËXÛÛZ[™\ˆ›^›^XÛÛÎ™›^\›İÈ][\ËXÙ[\ˆ\İYKX™]ÙY[ˆØ\Mˆ^XÙ[\ˆÎ^[Y‚ˆ]ˆÛ\ÜÓ˜[YOH™›^][\ËXÙ[\ˆØ\M‚ˆ]ˆÛ\ÜÓ˜[YOHËLMLM›İ[™YL™ËYÜ˜YY[]ËXœˆœ›ÛKXœ˜[™ËXœ˜[™Y\šÈ›^][\ËXÙ[\ˆ\İYKXÙ[\ˆ^]Ú]HÚYİË^ÚYİËXœ˜[™ÌŒ‚ˆÛ™HÚ^™O^ÌŸHÛ\ÜÓ˜[YOH˜[š[X]K\[ÙHˆÏ‚ˆÙ]‚ˆ]‚ˆ]ˆÛ\ÜÓ˜[YOH^^È\\˜Ø\ÙH˜XÚÚ[™Ë]ÚY\İ^YÛÛ›ÛX›Û‚ˆÛ[™ÈOOH	ÜIÈÈ	ô%t-4.4/tbô.H4.´/´.ô.Ëta´-t/t`´`4.4-4/´`t`´,4,´.´,	Èˆ[™ÈOOH	Ù[‰ÈÈ	ÔÚ[™ÛHØ[Ù[\ˆ	ˆ[]™\IÈˆ	ÖXYÛÛ˜H[ÜXHX\šØ^šH˜HY]Ø^š\Ú	ßBˆÙ]‚ˆBˆ™YH[ŠÎNNÌLŒ‚ˆÛ\ÜÓ˜[YOH^LÛN^LŞ›ÛY\Ü^H›ÛX›XÚÈ^]Ú]Hİ™\^YÛÛ˜[œÚ][Û‹XÛÛÜœÈ˜XÚÚ[™Ë]YÚ‚ˆ‚ˆ
-ÎNN
-ÌJHŒLLˆØO‚ˆÙ]‚ˆÙ]‚‚ˆ]ˆÛ\ÜÓ˜[YOH™›^›^]Ü˜\][\ËXÙ[\ˆ\İYKXÙ[\ˆØ\LÈ‚ˆËÊˆ[YÜ˜[HYÛX\ÚH
-‹ßBˆBˆ™YHšÎ‹Ëİ›YKÜİ˜Ú]Wİ^ˆ‚ˆ\™Ù]H—Ø›[šÈ‚ˆ™[H››Ü™Y™\œ™\ˆ‚ˆÛ\ÜÓ˜[YOHš[›[™KY›^][\ËXÙ[\ˆØ\L‹HMˆKLËH›İ[™YL™ËVÈÌŒQQWHİ™\˜™ËVÈÌQNMWH^]Ú]H›ÛX›Û^\ÛHÚYİË[ÈÚYİËVÈÌŒQQWKÌHİ™\œÚYİË^˜[œÚ][Û‹X[\˜][Û‹LŒİ™\‹]˜[œÛ]K^KLH‚ˆ‚ˆÙ[™Ú^™O^ÌNHÏ‚ˆÜ[•[YÜ˜[HØ[˜[[Z^ÜÜ[‚ˆ\œ›İÕ\šYÚÚ^™O^ÌMHÛ\ÜÓ˜[YOH›ÜXÚ]KMÌˆÏ‚ˆØO‚‚ˆËÊˆ[œİYÜ˜[HYÛX\ÚH
-‹ßBˆBˆ™YHšÎ‹ËÚ[œİYÜ˜[K˜ÛÛKÜİ˜Ú]Wİ^ˆ‚ˆ\™Ù]H—Ø›[šÈ‚ˆ™[H››Ü™Y™\œ™\ˆ‚ˆÛ\ÜÓ˜[YOHš[›[™KY›^][\ËXÙ[\ˆØ\L‹HMˆKLËH›İ[™YL™ËYÜ˜YY[]Ë\ˆœ›ÛKVÈÎÌĞPHšXKVÈÑ‘QQHËVÈÑÍÍÌÍ×Hİ™\›ÜXÚ]KNMH^]Ú]H›ÛX›Û^\ÛHÚYİË[ÈÚYİË\[šËNLÌHİ™\œÚYİË^˜[œÚ][Û‹X[\˜][Û‹LŒİ™\‹]˜[œÛ]K^KLH‚ˆ‚ˆ[œİYÜ˜[HÚ^™O^ÌNHÏ‚ˆÜ[’[œİYÜ˜[OÜÜ[‚ˆj¹âkºwµçhºÚn¶Šâ‚)Ú–Ú$zw(º{uçMS¢Ö¥¢ëiºÙbë5<ArrowUpRight size={14} className="opacity-70" />
+import { useLanguage } from '@context/LanguageContext'
+import { Phone, MapPin, Clock, Send, Instagram, ArrowUpRight, Flame, Heart } from 'lucide-react'
+
+export default function Footer() {
+  const { lang } = useLanguage()
+  const year = new Date().getFullYear()
+
+  const quickLinks = [
+    {
+      name: lang === 'ru' ? 'ĞĞºÑ†Ğ¸Ğ¸ Ğ¸ ĞºĞ¾Ğ¼Ğ±Ğ¾' : lang === 'en' ? 'Promotions & Combos' : 'Aksiyalar va kombolar',
+      href: '#promo-section',
+    },
+    {
+      name: lang === 'ru' ? 'ĞĞ°ÑˆĞµ Ğ¼ĞµĞ½Ñ' : lang === 'en' ? 'Our Menu' : 'Bizning menyu',
+      href: '#menu-section',
+    },
+    {
+      name: lang === 'ru' ? 'Ğ Ğ½Ğ°Ñ' : lang === 'en' ? 'About Us' : 'Biz haqimizda',
+      href: '#about-section',
+    },
+    {
+      name: lang === 'ru' ? 'Ğ¤Ğ¸Ğ»Ğ¸Ğ°Ğ»Ñ‹' : lang === 'en' ? 'Branches' : 'Filiallarimiz',
+      href: '#branches-section',
+    },
+  ]
+
+  const menuCategories = [
+    { name: lang === 'ru' ? 'Ğ¡Ğ²Ğ°Ğ´ĞµĞ±Ğ½Ñ‹Ğ¹ Ğ¿Ğ»Ğ¾Ğ²' : lang === 'en' ? 'Wedding Plov' : 'Toâ€˜y oshi', href: '#menu-section' },
+    { name: lang === 'ru' ? 'Ğ§Ğ°Ğ¹Ñ…Ğ°Ğ½ÑĞºĞ¸Ğ¹ Ğ¿Ğ»Ğ¾Ğ²' : lang === 'en' ? 'Chaykhana Plov' : 'Choyxona oshi', href: '#menu-section' },
+    { name: lang === 'ru' ? 'ĞÑĞ¾Ğ±Ğ°Ñ Ğ”ĞµĞ²Ğ·Ğ¸Ñ€Ğ°' : lang === 'en' ? 'Special Devzira' : 'Devzira maxsus osh', href: '#menu-section' },
+    { name: lang === 'ru' ? 'Ğ¡Ğ°Ğ¼Ğ°Ñ€ĞºĞ°Ğ½Ğ´ÑĞºĞ¸Ğ¹ Ğ¿Ğ»Ğ¾Ğ²' : lang === 'en' ? 'Samarkand Plov' : 'Samarqand oshi', href: '#menu-section' },
+    { name: lang === 'ru' ? 'ĞšĞ°Ğ·Ñ‹ Ğ¸ Ğ¿ĞµÑ€ĞµĞ¿ĞµĞ»Ğ¸Ğ½Ñ‹Ğµ ÑĞ¹Ñ†Ğ°' : lang === 'en' ? 'Qazi & Quail Eggs' : 'Ot goâ€˜shtli Qazi va tuxum', href: '#menu-section' },
+    { name: lang === 'ru' ? 'Ğ¡Ğ²ĞµĞ¶Ğ¸Ğ¹ ĞÑ‡Ğ¸Ñ‡ÑƒĞº' : lang === 'en' ? 'Fresh Achichuk' : 'Achichuk salati', href: '#menu-section' },
+  ]
+
+  return (
+    <footer className="bg-[#1F1A17] text-[#EDE6DC] relative overflow-hidden border-t-4 border-brand">
+      {/* Hashamatli nozik fon nurlanishlari */}
+      <div className="absolute top-0 left-1/4 w-96 h-96 bg-brand/10 rounded-full blur-3xl pointer-events-none" />
+      <div className="absolute bottom-0 right-10 w-80 h-80 bg-gold/5 rounded-full blur-3xl pointer-events-none" />
+
+      {/* Asosiy yuqori CTA / Aloqa tasmasi */}
+      <div className="border-b border-white/10 py-10 bg-black/20">
+        <div className="pc-container flex flex-col lg:flex-row items-center justify-between gap-6 text-center lg:text-left">
+          <div className="flex items-center gap-4">
+            <div className="w-14 h-14 rounded-2xl bg-gradient-to-br from-brand to-brand-dark flex items-center justify-center text-white shadow-xl shadow-brand/20">
+              <Phone size={26} className="animate-pulse" />
+            </div>
+            <div>
+              <div className="text-xs uppercase tracking-widest text-gold font-bold">
+                {lang === 'ru' ? 'Ğ•Ğ´Ğ¸Ğ½Ñ‹Ğ¹ ĞºĞ¾Ğ»Ğ»-Ñ†ĞµĞ½Ñ‚Ñ€ Ğ¸ Ğ´Ğ¾ÑÑ‚Ğ°Ğ²ĞºĞ°' : lang === 'en' ? 'Single Call Center & Delivery' : 'Yagona aloqa markazi va yetkazish'}
+              </div>
+              <a
+                href="tel:+998712000000"
+                className="text-2xl sm:text-3xl font-display font-black text-white hover:text-gold transition-colors tracking-tight"
+              >
+                +998 (71) 200-00-00
+              </a>
+            </div>
+          </div>
+
+          <div className="flex flex-wrap items-center justify-center gap-3">
+            {/* Telegram tugmasi */}
+            <a
+              href="https://t.me/plovcity_uz"
+              target="_blank"
+              rel="noreferrer"
+              className="inline-flex items-center gap-2.5 px-6 py-3.5 rounded-2xl bg-[#229ED9] hover:bg-[#1E88E5] text-white font-bold text-sm shadow-lg shadow-[#229ED9]/25 hover:shadow-xl transition-all duration-200 hover:-translate-y-0.5"
+            >
+              <Send size={18} />
+              <span>Telegram Kanalimiz</span>
+              <ArrowUpRight size={14} className="opacity-70" />
+            </a>
+
+            {/* Instagram tugmasi */}
+            <a
+              href="https://instagram.com/plovcity_uz"
+              target="_blank"
+              rel="noreferrer"
+              className="inline-flex items-center gap-2.5 px-6 py-3.5 rounded-2xl bg-gradient-to-r from-[#833AB4] via-[#FD1D1D] to-[#F77737] hover:opacity-95 text-white font-bold text-sm shadow-lg shadow-pink-900/25 hover:shadow-xl transition-all duration-200 hover:-translate-y-0.5"
+            >
+              <Instagram size={18} />
+              <span>Instagram</span>
+              <ArrowUpRight size={14} className="opacity-70" />
             </a>
           </div>
         </div>
@@ -39,5 +118,100 @@ YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞìÕÍ•1…¹Õ…”ô™É½´€½¹Ñ
                 <ShieldCheck size={16} className="text-emerald-400" />
                 <span>100% Halol Sertifikati</span>
               </div>
-              <div className="flex items-center gap-1.5 text-xs text-stone-300 font-semibolÖÚ$z{-®éÜj×&r×v†—FRóR&÷&FW"&÷&FW"×v†—FRó‚Ó2’ÓãR&÷VæFVB×†Â#à¢Ä6Æö6²6—¦S×³WÒ6Æ74æÖSÒ'FW‡BÖvöÆB"óà¢Ç7ãã“£Ò#3£Â÷7ãà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà ¢²ò¢"âFW¦¶÷"ÖVç—Rƒ2W7GVâ’¢÷Ğ¢ÆF—b6Æ74æÖSÒ&Æs¦6öÂ×7âÓ276R×’ÓB#à¢ÆƒB6Æ74æÖSÒ'FW‡B×v†—FRföçBÖF—7Æ’föçBÖ&öÆBFW‡BÖ&6RWW&66RG&6¶–ær×v–FW"FW‡BÖvöÆBfÆW‚—FV×2Ö6VçFW"vÓ"#à¢Ç7â6Æ74æÖSÒ'rÓ"‚Ó"&÷VæFVBÖgVÆÂ&rÖvöÆB"óà¢¶ÆærÓÓÒw'Rrò}	ıíı=½ıİ½’ı½í"r¢ÆærÓÓÒvVâròu÷VÆ"Æ÷br¢töÖÖ&÷FöÖÆ"wĞ¢ÂöƒCà¢ÇVÂ6Æ74æÖSÒ'76R×’Ó"ãRFW‡B×6Ò#à¢¶ÖVçT6FVv÷&–W2æÖ‚†—FVÒÂ–G‚’Óâ€¢ÆÆ’¶W“×¶–G‡Óà¢Æ¢‡&Vc×¶—FVÒæ‡&VgĞ¢6Æ74æÖSÒ'FW‡B×7FöæRÓ3†÷fW#§FW‡B×v†—FR†÷fW#§G&ç6ÆFR×‚Ó–æÆ–æRÖfÆW‚—FV×2Ö6VçFW"vÓãRG&ç6—F–öâÖÆÂGW&F–öâÓ# ¢à¢Ç7â6Æ74æÖSÒ'FW‡BÖ'&æBFW‡B×‡2#âg'6Vó³Â÷7ãà¢¶—FVÒææÖWĞ¢Âöà¢ÂöÆ“à¢’—Ğ¢Â÷VÃà¢ÂöF—cà ¢²ò¢2â6—B&òvÆ–ÖÆ&’ƒ"W7GVâ’¢÷Ğ¢ÆF—b6Æ74æÖSÒ&Æs¦6öÂ×7âÓ"76R×’ÓB#à¢ÆƒB6Æ74æÖSÒ'FW‡B×v†—FRföçBÖF—7Æ’föçBÖ&öÆBFW‡BÖ&6RWW&66RG&6¶–ær×v–FW"FW‡BÖvöÆBfÆW‚—FV×2Ö6VçFW"vÓ"#à¢Ç7â6Æ74æÖSÒ'rÓ"‚Ó"&÷VæFVBÖgVÆÂ&rÖvöÆB"óà¢¶ÆærÓÓÒw'Rrò}	İ-=mòr¢ÆærÓÓÒvVâròtæf–vF–öâr¢t&ş(	†Æ–ÖÆ"wĞ¢ÂöƒCà¢ÇVÂ6Æ74æÖSÒ'76R×’Ó"ãRFW‡B×6Ò#à¢·V–6´Æ–æ·2æÖ‚†Æ–æ²Â–G‚’Óâ€¢ÆÆ’¶W“×¶–G‡Óà¢Æ¢‡&Vc×¶Æ–æ²æ‡&VgĞ¢6Æ74æÖSÒ'FW‡B×7FöæRÓ3†÷fW#§FW‡B×v†—FR†÷fW#§G&ç6ÆFR×‚Ó–æÆ–æRÖfÆW‚—FV×2Ö6VçFW"vÓãRG&ç6—F–öâÖÆÂGW&F–öâÓ# ¢à¢Ç7â6Æ74æÖSÒ'FW‡BÖ'&æBFW‡B×‡2#âg'6Vó³Â÷7ãà¢¶Æ–æ²ææÖWĞ¢Âöà¢ÂöÆ“à¢’—Ğ¢Â÷VÃà¢ÂöF—cà ¢²ò¢Bâf–Æ–ÆÆ"fÆ÷ƒ2W7GVâ’¢÷Ğ¢ÆF—b6Æ74æÖSÒ&Æs¦6öÂ×7âÓ276R×’ÓB#à¢ÆƒB6Æ74æÖSÒ'FW‡B×v†—FRföçBÖF—7Æ’föçBÖ&öÆBFW‡BÖ&6RWW&66RG&6¶–ær×v–FW"FW‡BÖvöÆBfÆW‚—FV×2Ö6VçFW"vÓ"#à¢Ç7â6Æ74æÖSÒ'rÓ"‚Ó"&÷VæFVBÖgVÆÂ&rÖvöÆB"óà¢¶ÆærÓÓÒw'Rrò}
-M½½²r¢ÆærÓÓÒvVâròt÷W"'&æ6†W2r¢tf–Æ–ÆÆ&–Ö—¢wĞ¢ÂöƒCà ¢ÆF—b6Æ74æÖSÒ'76R×’Ó2FW‡B×‡2FW‡B×7FöæRÓ3#à¢ÆF—b6Æ74æÖSÒ'Ó2&÷VæFVBÓ'†Â&r×v†—FRóR&÷&FW"&÷&FW"×v†—FRó76R×’Ó#à¢ÆF—b6Æ74æÖSÒ&föçBÖ&öÆBFW‡B×v†—FRFW‡B×6Ò#ãâ6†–Æöç¦÷"Ö&¶¦“ÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡B×7FöæRÓC#ä'Vç–öF¶÷"6†ö‚¶òv6†6’C"„æ÷g¦ÖWG&ò“ÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡BÖvöÆBföçBÖÖVF—VÒ#â³““‚s#ÓÓÂöF—cà¢ÂöF—cà ¢ÆF—b6Æ74æÖSÒ'Ó2&÷VæFVBÓ'†Â&r×v†—FRóR&÷&FW"&÷&FW"×v†—FRó76R×’Ó#à¢ÆF—b6Æ74æÖSÒ&föçBÖ&öÆBFW‡B×v†—FRFW‡B×6Ò#ã"â—VçW6ö&öCÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡B×7FöæRÓC#äÖ—"FV×W"6†ö‚¶òv6†6’‚…6†‡&—7FöâÖWG&ò“ÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡BÖvöÆBföçBÖÖVF—VÒ#â³““‚s#ÓÓ#ÂöF—cà¢ÂöF—cà ¢ÆF—b6Æ74æÖSÒ'Ó2&÷VæFVBÓ'†Â&r×v†—FRóR&÷&FW"&÷&FW"×v†—FRó76R×’Ó#à¢ÆF—b6Æ74æÖSÒ&föçBÖ&öÆBFW‡B×v†—FRFW‡B×6Ò#ã2âòw&–·¦÷#ÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡B×7FöæRÓC#åV6‡FWGVÖæ’Âòw&–·¦÷"&÷¦÷&’&÷6‚¶—&—6†“ÂöF—cà¢ÆF—b6Æ74æÖSÒ'FW‡BÖvöÆBföçBÖÖVF—VÒ#â³““‚s#ÓÓ3ÂöF—cà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà ¢ÂöF—cà¢ÂöF—cà ¢²ò¢7F¶’×VÆÆ–fÆ–²‡WW’fÖ–æ’6†—¦—¢÷Ğ¢ÆF—b6Æ74æÖSÒ&&÷&FW"×B&÷&FW"×v†—FRó’Ób&rÖ&Æ6²óC#à¢ÆF—b6Æ74æÖSÒ'2Ö6öçF–æW"fÆW‚fÆW‚Ö6öÂ6Ó¦fÆW‚×&÷r—FV×2Ö6VçFW"§W7F–g’Ö&WGvVVâvÓBFW‡B×‡2FW‡B×7FöæRÓCFW‡BÖ6VçFW"6Ó§FW‡BÖÆVgB#à¢ÆF—b6Æ74æÖSÒ&fÆW‚—FV×2Ö6VçFW"vÓ2#à¢Ç7ãâf6÷“²·–V'ÒÇ7â6Æ74æÖSÒ'FW‡B×v†—FRföçBÖ&öÆB#åÆ÷b6—G“Â÷7ãââ&&6†‡WWÆ"†–Ö÷–ÆævâãÂ÷7ãà¢ÂöF—cà¢ÆF—b6Æ74æÖSÒ&fÆW‚—FV×2Ö6VçFW"vÓFW‡B×7FöæRÓC#à¢Ç7ãäF7GW'†öæ–æv—¦vÖV‡"&–ÆâF—–÷&ÆæF“Â÷7ãà¢Ä†V'B6—¦S×³GÒ6Æ74æÖSÒ'FW‡B×&VBÓSf–ÆÂ×&VBÓS×‚Ó"óà¢Ç7ãåF÷6†¶VçBÂş(	‡¦&V¶—7FöãÂ÷7ãà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà¢Âöfö÷FW#à¢§Ğ
+              <div className="flex items-center gap-1.5 text-xs text-stone-300 font-semibold bg-white/5 border border-white/10 px-3 py-1.5 rounded-xl">
+                <Clock size={15} className="text-gold" />
+                <span>09:00 - 23:00</span>
+              </div>
+            </div>
+          </div>
+
+          {/* 2. Tezkor Menyu (3 ustun) */}
+          <div className="lg:col-span-3 space-y-4">
+            <h4 className="text-white font-display font-bold text-base uppercase tracking-wider text-gold flex items-center gap-2">
+              <span className="w-2 h-2 rounded-full bg-gold" />
+              {lang === 'ru' ? 'ĞŸĞ¾Ğ¿ÑƒĞ»ÑÑ€Ğ½Ñ‹Ğ¹ Ğ¿Ğ»Ğ¾Ğ²' : lang === 'en' ? 'Popular Plov' : 'Ommabop taomlar'}
+            </h4>
+            <ul className="space-y-2.5 text-sm">
+              {menuCategories.map((item, idx) => (
+                <li key={idx}>
+                  <a
+                    href={item.href}
+                    className="text-stone-300 hover:text-white hover:translate-x-1 inline-flex items-center gap-1.5 transition-all duration-200"
+                  >
+                    <span className="text-brand text-xs">&rsaquo;</span>
+                    {item.name}
+                  </a>
+                </li>
+              ))}
+            </ul>
+          </div>
+
+          {/* 3. Sayt bo'limlari (2 ustun) */}
+          <div className="lg:col-span-2 space-y-4">
+            <h4 className="text-white font-display font-bold text-base uppercase tracking-wider text-gold flex items-center gap-2">
+              <span className="w-2 h-2 rounded-full bg-gold" />
+              {lang === 'ru' ? 'ĞĞ°Ğ²Ğ¸Ğ³Ğ°Ñ†Ğ¸Ñ' : lang === 'en' ? 'Navigation' : 'Boâ€˜limlar'}
+            </h4>
+            <ul className="space-y-2.5 text-sm">
+              {quickLinks.map((link, idx) => (
+                <li key={idx}>
+                  <a
+                    href={link.href}
+                    className="text-stone-300 hover:text-white hover:translate-x-1 inline-flex items-center gap-1.5 transition-all duration-200"
+                  >
+                    <span className="text-brand text-xs">&rsaquo;</span>
+                    {link.name}
+                  </a>
+                </li>
+              ))}
+            </ul>
+          </div>
+
+          {/* 4. Filiallar va Aloqa (3 ustun) */}
+          <div className="lg:col-span-3 space-y-4">
+            <h4 className="text-white font-display font-bold text-base uppercase tracking-wider text-gold flex items-center gap-2">
+              <span className="w-2 h-2 rounded-full bg-gold" />
+              {lang === 'ru' ? 'Ğ¤Ğ¸Ğ»Ğ¸Ğ°Ğ»Ñ‹' : lang === 'en' ? 'Our Branches' : 'Filiallarimiz'}
+            </h4>
+
+            <div className="space-y-3 text-xs text-stone-300">
+              <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
+                <div className="font-bold text-white text-sm">1. Chilonzor Markazi</div>
+                <div className="text-stone-400">Bunyodkor shoh ko'chasi 42 (Novza metro)</div>
+                <div className="text-gold font-medium">+998 71 200-00-01</div>
+              </div>
+
+              <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
+                <div className="font-bold text-white text-sm">2. Yunusobod</div>
+                <div className="text-stone-400">Amir Temur shoh ko'chasi 108 (Shahriston metro)</div>
+                <div className="text-gold font-medium">+998 71 200-00-02</div>
+              </div>
+
+              <div className="p-3 rounded-2xl bg-white/5 border border-white/10 space-y-1">
+                <div className="font-bold text-white text-sm">3. O'rikzor</div>
+                <div className="text-stone-400">Uchtepa tumani, O'rikzor bozori bosh kirishi</div>
+                <div className="text-gold font-medium">+998 71 200-00-03</div>
+              </div>
+            </div>
+          </div>
+
+        </div>
+      </div>
+
+      {/* Pastki mualliflik huquqi va mini chiziq */}
+      <div className="border-t border-white/10 py-6 bg-black/40">
+        <div className="pc-container flex flex-col sm:flex-row items-center justify-between gap-4 text-xs text-stone-400 text-center sm:text-left">
+          <div className="flex items-center gap-3">
+            <span>&copy; {year} <span className="text-white font-bold">Plov City</span>. Barcha huquqlar himoyalangan.</span>
+          </div>
+          <div className="flex items-center gap-1 text-stone-400">
+            <span>Dasturxoningizga mehr bilan tayyorlandi</span>
+            <Heart size={14} className="text-red-500 fill-red-500 mx-1" />
+            <span>Toshkent, Oâ€˜zbekiston</span>
+          </div>
+        </div>
+      </div>
+    </footer>
+  )
+}
+

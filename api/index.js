@@ -1,42 +1,70 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìÉ•…Ñ•!µ…Œ°Ñ¥µ¥¹M…™•ÅÕ…°°ÍÉåÁÑMå¹Œ°É…¹‘½µ	åÑ•Ìô™É½´€¹½‘”éÉåÁÑ¼œ()½¹ÍÐ==-%€ô€Á}…‘µ¥¹}Í•ÍÍ¥½¸œ)½¹ÍÐ	}-d€ô€Á±½Øµ¥ÑäéÉ•…ÐéØÄœ)½¹ÍÐMMM%=9}QQ0€ô€à€¨€ØÀ€¨€ØÀ)½¹ÍÐ‘•™…Õ±Ñˆ€ô€ ¤€ôø€¡ìµ•¹Ôèmt°½É‘•ÉÌèmt°Ù¥Í¥Ñ½ÉÌèmt°…‘µ¥¹A…ÍÍÝ½É‘!…Í è€œœ°…‘µ¥¹UÍ•É¹…µ”èÁÉ½•ÍÌ¹•¹Ø¹5%9}UMI95ñð€½Ý¹•Èœô¤)½¹ÍÐÉ•‘¥Í½¹™¥œ€ô€ ¤€ôø€¡ìÕÉ°èÁÉ½•ÍÌ¹•¹Ø¹UAMQM!}I%M}IMQ}UI0ñðÁÉ½•ÍÌ¹•¹Ø¹-Y}IMQ}A%}UI0°Ñ½­•¸èÁÉ½•ÍÌ¹•¹Ø¹UAMQM!}I%M}IMQ}Q=-8ñðÁÉ½•ÍÌ¹•¹Ø¹-Y}IMQ}A%}Q=-8ô¤()…Íå¹Œ™Õ¹Ñ¥½¸É•‘¥Ì¡½µµ…¹¤ì(€½¹ÍÐìÕÉ°°Ñ½­•¸ô€ôÉ•‘¥Í½¹™¥œ ¤(€¥˜€ …ÕÉ°ñð€…Ñ½­•¸¤Ñ¡É½Ü=‰©•Ð¹…ÍÍ¥¸¡¹•ÜÉÉ½È Y•É•°±½å¥¡…Í¥‘„UÁÍÑ…Í I•‘¥ÌÕ±…¹µ……¸¸MÑ½É…”ƒŠHÉ•…Ñ”…Ñ…‰…Í”½ÉÅ…±¤I•‘¥ÌÕ±…¹œÙ„É•‘•Á±½äÅ¥±¥¹œ¸œ¤°ìÍÑ…ÑÕÌè€ÔÀÌô¤(€½¹ÍÐÉ•ÍÁ½¹Í”€ô…Ý…¥Ð™•Ñ ¡ÕÉ°°ìµ•Ñ¡½è€A=MPœ°¡•…‘•ÉÌèìÕÑ¡½É¥é…Ñ¥½¸è	•…É•È€‘íÑ½­•¹õ€°€½¹Ñ•¹ÐµQåÁ”œè€…ÁÁ±¥…Ñ¥½¸½©Í½¸œô°‰½‘äè)M=8¹ÍÑÉ¥¹¥™ä¡½µµ…¹¤ô¤(€½¹ÍÐÁ…å±½…€ô…Ý…¥ÐÉ•ÍÁ½¹Í”¹©Í½¸ ¤(€¥˜€ …É•ÍÁ½¹Í”¹½¬ñðÁ…å±½…¹•ÉÉ½È¤Ñ¡É½Ü=‰©•Ð¹…ÍÍ¥¸¡¹•ÜÉÉ½È¡Á…å±½…¹•ÉÉ½Èñð€I•‘¥Ì‰¥±…¸…±½Å„á…Ñ½Í¤¸œ¤°ìÍÑ…ÑÕÌè€ÔÀÈô¤(€É•ÑÕÉ¸Á…å±½…¹É•ÍÕ±Ð)ô()…Íå¹Œ™Õ¹Ñ¥½¸É•…‘ˆ ¤ì(€½¹ÍÐÉ•ÍÕ±Ð€ô…Ý…¥ÐÉ•‘¥Ì¡lPœ°	}-et¤(€¥˜€ …É•ÍÕ±Ð¤É•ÑÕÉ¸‘•™…Õ±Ñˆ ¤(€ÑÉäìÉ•ÑÕÉ¸ì€¸¸¹‘•™…Õ±Ñˆ ¤°€¸¸¹)M=8¹Á…ÉÍ”¡É•ÍÕ±Ð¤ôô…Ñ ìÉ•ÑÕÉ¸‘•™…Õ±Ñˆ ¤ô)ô)…Íå¹Œ™Õ¹Ñ¥½¸ÝÉ¥Ñ•ˆ¡‘ˆ¤ì…Ý…¥ÐÉ•‘¥Ì¡lMPœ°	}-d°)M=8¹ÍÑÉ¥¹¥™ä¡‘ˆ¥t¤ô)™Õ¹Ñ¥½¸Í•É•Ð ¤ì(€½¹ÍÐÙ…±Õ”€ôÁÉ½•ÍÌ¹•¹Ø¹5%9}MMM%=9}MIP(€¥˜€ …Ù…±Õ”ñðÙ…±Õ”¹±•¹Ñ €ð€ÌÈ¤Ñ¡É½Ü=‰©•Ð¹…ÍÍ¥¸¡¹•ÜÉÉ½È 5%9}MMM%=9}MIPÅ¥åµ…Ñ¥¹¤Y•É•°¹Ù¥É½¹µ•¹ÐY…É¥…‰±•Ì‘„­…µ¥‘„€ÌÈ‰•±¥‘…¸¥‰½É…ÐÅ¥±¥ˆÍ½é±…¹œ¸œ¤°ìÍÑ…ÑÕÌè€ÔÀÌô¤(€É•ÑÕÉ¸Ù…±Õ”)ô)™Õ¹Ñ¥½¸Í¥¸¡Ù…±Õ”¤ìÉ•ÑÕÉ¸É•…Ñ•!µ…Œ Í¡„ÈÔØœ°Í•É•Ð ¤¤¹ÕÁ‘…Ñ”¡Ù…±Õ”¤¹‘¥•ÍÐ ¡•àœ¤ô)™Õ¹Ñ¥½¸Á…ÉÍ•½½­¥•Ì¡É•Ä¤ìÉ•ÑÕÉ¸=‰©•Ð¹™É½µ¹ÑÉ¥•Ì ¡É•Ä¹¡•…‘•ÉÌ¹½½­¥”ñð€œœ¤¹ÍÁ±¥Ð œìœ¤¹µ…À¡à€ôøà¹ÑÉ¥´ ¤¤¹™¥±Ñ•È¡	½½±•…¸¤¹µ…À¡à€ôøì½¹ÍÐ¤õà¹¥¹‘•á=˜ œôœ¤ìÉ•ÑÕÉ¸mà¹Í±¥” À±¤¤°‘•½‘•UI%½µÁ½¹•¹Ð¡à¹Í±¥”¡¤¬Ä¤¥tô¤¤ô)™Õ¹Ñ¥½¸Ù…±¥‘M•ÍÍ¥½¸¡É•Ä¤ì(€½¹ÍÐÙ…±Õ”€ôÁ…ÉÍ•½½­¥•Ì¡É•Ä¥m==-%tñð€œœ(€½¹ÍÐm•áÁ¥É•Ì°Í¥¹…ÑÕÉ•t€ôÙ…±Õ”¹ÍÁ±¥Ð œ¸œ¤(€¥˜€ …•áÁ¥É•Ìñð€…Í¥¹…ÑÕÉ”ñð9Õµ‰•È¡•áÁ¥É•Ì¤€ð…Ñ”¹¹½Ü ¤¤É•ÑÕÉ¸™…±Í”(€½¹ÍÐ•áÁ•Ñ•€ô	Õ™™•È¹™É½´¡Í¥¸¡•áÁ¥É•Ì¤°€¡•ã[h‘éì¶»§q«^vKÝ\YYHY™™\‹™œ›ÛJÚYÛ˜]\™K	Ú^	ÊBˆ™]\›ˆ^XÝY›[™ÝOOHÝ\YY›[™Ý	‰ˆ[Z[™ÔØY™Q\]X[
-^XÝYÝ\YY
-BŸB™[˜Ý[ÛˆÙ]ÛÛÚÚYJ™\Ë˜[YKX^YÙJHÂˆÛÛœÝÙXÝ\™HH›ØÙ\ÜË™[‹““ÑWÑS•ˆOOH	Ü›ÙXÝ[Û‰ÈÈ	ÎÈÙXÝ\™IÈˆ	ÉÂˆ™\ËœÙ]XY\Š	ÔÙ]PÛÛÚÚYIË	ÐÓÓÒÒQ_OIÙ[˜ÛÙUT’PÛÛ\Û™[
-˜[YJ_NÈÛ›NÈ]KÎÈØ[YTÚ]OTÝšXÝÈX^PYÙOIÛX^YÙ_IÜÙXÝ\™_X
-BŸB™[˜Ý[ÛˆœÛÛŠ™\ËÝ]\Ë]JHÈ™\ËœÝ]\ÐÛÙO\Ý]\ÎÈ™\ËœÙ]XY\Š	ÐÛÛ[U\IË	Ø\XØ][Û‹ÚœÛÛŽÈÚ\œÙ]]]‹N	ÊNÈ™\ËœÙ]XY\Š	ÐØXÚKPÛÛ›Û	Ë	Û›Ë\ÝÜ™IÊNÈ™\Ë™[™
-”ÓÓ‹œÝš[™ÚYžJ]JJHB˜\Þ[˜È[˜Ý[Ûˆ›ÙJ™\JHÂˆYˆ
-™\K˜›ÙH	‰ˆ\[Ùˆ™\K˜›ÙHOOH	ÛØš™XÝ	ÊH™]\›ˆ™\K˜›ÙBˆ]˜]ÏIÉÎÈ›Üˆ]ØZ]
-ÛÛœÝÚ[šÈÙˆ™\JH˜]È
-ÏHÚ[šÂˆžHÈ™]\›ˆ˜]ÈÈ”ÓÓ‹œ\œÙJ˜]ÊHˆßHHØ]ÚÈ›ÝÈØš™XÝ˜\ÜÚYÛŠ™]È\œ›ÜŠ	ÔÛø &›Ýˆ›Ü›X]H›Ýø &ø &šK‰ÊKÈÝ]\ÎˆJHBŸB™[˜Ý[Ûˆ\Ú\ÜÝÛÜ™
-\ÜÝÛÜ™Ø[H˜[™ÛPž]\ÊMŠKÔÝš[™Ê	Ú^	ÊJHÈ™]\›ˆ	ÜØ[N‰ÜØÜž\Þ[˜Ê\ÜÝÛÜ™Ø[
-KÔÝš[™Ê	Ú^	Ê_XB™[˜Ý[ÛˆÚXÚÔ\ÜÝÛÜ™
-\ÜÝÛÜ™Ø]™Y
-HÂˆYˆ
-\Ø]™Y
-HÂˆÛÛœÝÛÛ™šYÝ\™YH›ØÙ\ÜË™[‹QRS—ÔTÔÕÓÔ‘	ÉÂˆ™]\›ˆ›ÛÛX[ŠÛÛ™šYÝ\™Y
-H	‰ˆ\ÜÝÛÜ™OOHÛÛ™šYÝ\™YˆBˆÛÛœÝÜØ[YÙ\ÝHHØ]™YœÜ]
-	Î‰ÊNÈYˆ
-\Ø[YYÙ\Ý
-H™]\›ˆ˜[ÙBˆÛÛœÝ^XÝYPY™™\‹™œ›ÛJYÙ\Ý	Ú^	ÊKXÝX[\ØÜž\Þ[˜Ê\ÜÝÛÜ™Ø[
-Bˆ™]\›ˆ^XÝY›[™ÝOOXXÝX[›[™Ý	‰ˆ[Z[™ÔØY™Q\]X[
-^XÝYXÝX[
-BŸB™[˜Ý[ÛˆÙ]]
-™\JHÈÛÛœÝ˜]ÈH™\Kœ]Y\žOËœ]™]ÈT“
-™\K\›	Ú‹ËÛØØ[ÜÝ	ÊKœÙX\˜Ú\˜[\Ë™Ù]
-	Ü]	ÊH	ÉÎÈÛÛœÝÛX[TÝš[™Ê\œ˜^Kš\Ð\œ˜^J˜]ÊHÈ˜]Ëš›Ú[Š	ËÉÊHˆ˜]ÊKœ™\XÙJ×—ÊËË	ÉÊKœ™\XÙJ×˜\WËË	ÉÊNÈ™]\›ˆ	ËØ\KÉÈ
-ÈÛX[ˆB™[˜Ý[ÛˆÜ™\”Ý]ÊŠHÂˆÛÛœÝ™]™[YOY‹›Ü™\œË™š[\ŠÏO›ËœÝ]\ÈOOIØØ[˜Ù[Y	ÊKœ™YXÙJ
-ËÊOOœÊÓ[X™\ŠËÝ[šXÙ_ËÝ[
-K
-BˆÛÛœÝÜ™\™Y[™]ÈÙ]
-‹›Ü™\œË›X\
-ÏO›Ëš\Ú]Ü’Y
-K™š[\Š›ÛÛX[ŠJKœÚ^™Bˆ™]\›ˆÈš\Ú]ÜœÎ™‹š\Ú]ÜœË›[™ÝÜ™\™Yš\Ú]ÜœÎ›Ü™\™Yœ›ÝÜÚ[™ÓÛ›N“X]›X^
-‹š\Ú]ÜœË›[™Ý[Ü™\™Y
-KÜ™\œÎ™‹›Ü™\œË›[™ÝÝ[™]™[YNœ™]™[YKÛÛ™\œÚ[Û”˜]N™‹š\Ú]ÜœË›[™ÝÈ
-Ü™\™YÙ‹š\Ú]ÜœË›[™Ý
-ŒL
-KÑš^Y
-JHˆ	ÌŒ	ÈBŸB‚™^ÜY˜][\Þ[˜È[˜Ý[Ûˆ[™\Š™\K™\ÊHÂˆžHÂˆÛÛœÝ]YÙ]]
-™\JKY]Ù\™\K›Y]j¹âžkºwµçhºÚn¶Šâ‚)Ú–Ú$zw(º{uçMS¢Ö¥¢ëiºÙbë5hod || 'GET'
+import { createHmac, timingSafeEqual, scryptSync, randomBytes } from 'node:crypto'
+
+const COOKIE = 'pc_admin_session'
+const DB_KEY = 'plov-city:react:v1'
+const SESSION_TTL = 8 * 60 * 60
+const defaultDb = () => ({ menu: [], orders: [], visitors: [], adminPasswordHash: '', adminUsername: process.env.ADMIN_USERNAME || 'owner' })
+const redisConfig = () => ({ url: process.env.UPSTASH_REDIS_REST_URL || process.env.KV_REST_API_URL, token: process.env.UPSTASH_REDIS_REST_TOKEN || process.env.KV_REST_API_TOKEN })
+
+async function redis(command) {
+  const { url, token } = redisConfig()
+  if (!url || !token) throw Object.assign(new Error('Vercel loyihasida Upstash Redis ulanmagan. Storage â†’ Create Database orqali Redis ulang va redeploy qiling.'), { status: 503 })
+  const response = await fetch(url, { method: 'POST', headers: { Authorization: `Bearer ${token}`, 'Content-Type': 'application/json' }, body: JSON.stringify(command) })
+  const payload = await response.json()
+  if (!response.ok || payload.error) throw Object.assign(new Error(payload.error || 'Redis bilan aloqa xatosi.'), { status: 502 })
+  return payload.result
+}
+
+async function readDb() {
+  const result = await redis(['GET', DB_KEY])
+  if (!result) return defaultDb()
+  try { return { ...defaultDb(), ...JSON.parse(result) } } catch { return defaultDb() }
+}
+async function writeDb(db) { await redis(['SET', DB_KEY, JSON.stringify(db)]) }
+function secret() {
+  const value = process.env.ADMIN_SESSION_SECRET
+  if (!value || value.length < 32) throw Object.assign(new Error('ADMIN_SESSION_SECRET qiymatini Vercel Environment Variables da kamida 32 belgidan iborat qilib sozlang.'), { status: 503 })
+  return value
+}
+function sign(value) { return createHmac('sha256', secret()).update(value).digest('hex') }
+function parseCookies(req) { return Object.fromEntries((req.headers.cookie || '').split(';').map(x => x.trim()).filter(Boolean).map(x => { const i=x.indexOf('='); return [x.slice(0,i), decodeURIComponent(x.slice(i+1))] })) }
+function validSession(req) {
+  const value = parseCookies(req)[COOKIE] || ''
+  const [expires, signature] = value.split('.')
+  if (!expires || !signature || Number(expires) < Date.now()) return false
+  const expected = Buffer.from(sign(expires), 'hex'), supplied = Buffer.from(signature, 'hex')
+  return expected.length === supplied.length && timingSafeEqual(expected, supplied)
+}
+function setCookie(res, value, maxAge) {
+  const secure = process.env.NODE_ENV === 'production' ? '; Secure' : ''
+  res.setHeader('Set-Cookie', `${COOKIE}=${encodeURIComponent(value)}; HttpOnly; Path=/; SameSite=Strict; Max-Age=${maxAge}${secure}`)
+}
+function json(res, status, data) { res.statusCode=status; res.setHeader('Content-Type','application/json; charset=utf-8'); res.setHeader('Cache-Control','no-store'); res.end(JSON.stringify(data)) }
+async function body(req) {
+  if (req.body && typeof req.body === 'object') return req.body
+  let raw=''; for await (const chunk of req) raw += chunk
+  try { return raw ? JSON.parse(raw) : {} } catch { throw Object.assign(new Error('Soâ€˜rov formati notoâ€˜gâ€˜ri.'), { status: 400 }) }
+}
+function hashPassword(password, salt = randomBytes(16).toString('hex')) { return `${salt}:${scryptSync(password, salt, 64).toString('hex')}` }
+function checkPassword(password, saved) {
+  if (!saved) {
+    const configured = process.env.ADMIN_PASSWORD || ''
+    return Boolean(configured) && password === configured
+  }
+  const [salt, digest] = saved.split(':'); if (!salt || !digest) return false
+  const expected=Buffer.from(digest,'hex'), actual=scryptSync(password,salt,64)
+  return expected.length===actual.length && timingSafeEqual(expected,actual)
+}
+function getPath(req) { const raw = req.query?.path || new URL(req.url, 'http://localhost').searchParams.get('path') || ''; const clean=String(Array.isArray(raw) ? raw.join('/') : raw).replace(/^\/+/, '').replace(/^api\//, ''); return '/api/' + clean }
+function orderStats(db) {
+  const revenue=db.orders.filter(o=>o.status!=='cancelled').reduce((s,o)=>s+Number(o.totalPrice||o.total||0),0)
+  const ordered=new Set(db.orders.map(o=>o.visitorId).filter(Boolean)).size
+  return { visitors:db.visitors.length, orderedVisitors:ordered, browsingOnly:Math.max(0,db.visitors.length-ordered), orders:db.orders.length, totalRevenue:revenue, conversionRate:db.visitors.length ? (ordered/db.visitors.length*100).toFixed(1) : '0.0' }
+}
+
+export default async function handler(req, res) {
+  try {
+    const path=getPath(req), method=req.method || 'GET'
     if (path==='/api/menu' && method==='GET') { const db=await readDb(); return json(res,200,{menu:db.menu}) }
     if (path==='/api/visitors' && method==='POST') {
       const {visitorId}=await body(req); if (!visitorId) return json(res,400,{error:'visitorId talab qilinadi.'})
@@ -61,4 +89,34 @@ KÑš^Y
     if (path==='/api/admin/login' && method==='POST') {
       if (!process.env.ADMIN_PASSWORD) throw Object.assign(new Error('Vercel Environment Variablesâ€™da ADMIN_PASSWORD ni sozlang.'), { status: 503 })
       const {username,password}=await body(req), db=await readDb()
-      const wantedUser=db.admiÖÚ$z{-®éÜj×W6W&æÖRÇÂ&ö6W72æVçbäDÔ”åõU4U$äÔRÇÂv÷væW"p¢–b…7G&–ær‡W6W&æÖWÇÂrr’çG&–Ò‚’Ó×vçFVEW6W"ÇÂ6†V6µ77v÷&B…7G&–ær‡77v÷&GÇÂrr’ÆF"æFÖ–å77v÷&D†6‚’’&WGW&â§6öâ‡&W2ÃCÇ¶W'&÷#¢tÆöv–â–ö¶’&öÂæ÷Fþ(	†~(	‡&’âwÒ¢6öç7BW‡—&W3Õ7G&–ær„FFRææ÷r‚’µ4U54”ôåõEDÂ£“²6WD6öö¶–R‡&W2ÆG¶W‡—&W7ÒâG·6–vâ†W‡—&W2—ÖÅ4U54”ôåõEDÂ¢&WGW&â§6öâ‡&W2Ã#Ç·7V66W73§G'VRÇW6W&æÖS§vçFVEW6W'Ò¢Ð¢–b‡FƒÓÓÒrö’öFÖ–âöÆöv÷WBrbbÖWF†öCÓÓÒuõ5Br’²6WD6öö¶–R‡&W2ÂrrÃ“²&WGW&â§6öâ‡&W2Ã#Ç·7V66W73§G'VWÒ’Ð¢–b‡F‚ç7F'G5v—F‚‚rö’öFÖ–âòr’bbfÆ–E6W76–öâ‡&W’’&WGW&â§6öâ‡&W2ÃCÇ¶W'&÷#¢tFÖ–âæVÆv¶—&—6‚V6‡VâF—¦–Öv¶—&–ærâwÒ¢–b‡FƒÓÓÒrö’öFÖ–â÷7FG2rbbÖWF†öCÓÓÒttUBr’²6öç7BF#Öv—B&VDF"‚“²&WGW&â§6öâ‡&W2Ã#Ç¶ÖVçS¦F"æÖVçRÆ÷&FW'3¦F"æ÷&FW'2Ç7FG3¦÷&FW%7FG2†F"—Ò’Ð¢–b‡FƒÓÓÒrö’öFÖ–âöÖVçRrbbÖWF†öCÓÓÒuUBr’°¢6öç7B¶ÖVçWÓÖv—B&öG’‡&W“²–b‚'&’æ—4'&’†ÖVçR’ÇÂÖVçRæÆVæwFƒã3’&WGW&â§6öâ‡&W2ÃCÇ¶W'&÷#¢tÖVç—RÖ(	–ÇVÖ÷FÆ&’æ÷Fþ(	†~(	‡&’–ö¶’§VF¶GFâwÒ¢6öç7BF#Öv—B&VDF"‚“²F"æÖVçSÖÖVçS²v—Bw&—FTF"†F"“²&WGW&â§6öâ‡&W2Ã#Ç·7V66W73§G'VRÆ6÷VçC¦ÖVçRæÆVæwF‡Ò¢Ð¢–b‡F‚ç7F'G5v—F‚‚rö’öFÖ–âö÷&FW'2òr’’°¢6öç7B–CÖFV6öFUU$”6ö×öæVçB‡F‚ç6Æ–6R‚rö’öFÖ–âö÷&FW'2òræÆVæwF‚’’ÂF#Öv—B&VDF"‚’Â–æFWƒÖF"æ÷&FW'2æf–æD–æFW‚†óÓæòæ÷&FW$çVÖ&W#ÓÓÖ–B¢–b†–æFWƒÃ’&WGW&â§6öâ‡&W2ÃCBÇ¶W'&÷#¢t'W—W'FÖF÷–ÆÖF’âwÒ¢–b†ÖWF†öCÓÓÒtDTÄUDRr’F"æ÷&FW'2ç7Æ–6R†–æFW‚Ã¢VÇ6R–b†ÖWF†öCÓÓÒuD4‚r’²6öç7B·7FGW7ÓÖv—B&öG’‡&W“²F"æ÷&FW'5¶–æFW…Òç7FGW3×7FGW2Ð¢VÇ6R&WGW&â§6öâ‡&W2ÃCRÇ¶W'&÷#¢tÖWF†öB'W‡6BWF–ÆÖvââwÒ¢v—Bw&—FTF"†F"“²&WGW&â§6öâ‡&W2Ã#Ç·7V66W73§G'VRÆ÷&FW#¦F"æ÷&FW'5¶–æFW…×ÇÆçVÆÇÒ¢Ð¢–b‡FƒÓÓÒrö’öFÖ–â÷77v÷&BrbbÖWF†öCÓÓÒuõ5Br’°¢6öç7B¶7W'&VçE77v÷&BÆæWu77v÷&BÆæWuW6W&æÖWÓÖv—B&öG’‡&W’ÂF#Öv—B&VDF"‚¢–b‚6†V6µ77v÷&B…7G&–ær†7W'&VçE77v÷&GÇÂrr’ÆF"æFÖ–å77v÷&D†6‚’’&WGW&â§6öâ‡&W2ÃCÇ¶W'&÷#¢t¦÷&—’&öÂæ÷Fþ(	†~(	‡&’âwÒ¢–b‡G—VöbæWu77v÷&BÓÒw7G&–ærwÇÆæWu77v÷&BæÆVæwFƒÃ’&WGW&â§6öâ‡&W2ÃCÇ¶W'&÷#¢u–æv’&öÂ¶Ö–FF&VÆv–Fâ–&÷&B&þ(	†Ç6–ââwÒ¢F"æFÖ–å77v÷&D†6ƒÖ†6…77v÷&B†æWu77v÷&B“²F"æFÖ–åW6W&æÖSÕ7G&–ær†æWuW6W&æÖWÇÆF"æFÖ–åW6W&æÖWÇÂv÷væW"r’çG&–Ò‚’ÇÂv÷væW"s²v—Bw&—FTF"†F"¢&WGW&â§6öâ‡&W2Ã#Ç·7V66W73§G'VRÇW6W&æÖS¦F"æFÖ–åW6W&æÖWÒ¢Ð¢&WGW&â§6öâ‡&W2ÃCBÇ¶W'&÷#¢t’–þ(	†Æ’F÷–ÆÖF’âwÒ¢Ò6F6‚†W'&÷"’²6öç6öÆRæW'&÷"‚t’W'&÷#¢rÆW'&÷"“²&WGW&â§6öâ‡&W2ÆW'&÷"ç7FGW7ÇÃSÇ¶W'&÷#¦W'&÷"æÖW76vWÇÂu6W'fW&F·WF–ÆÖvâ†FöÆ–²âwÒ’Ð§ÐÐ
+      const wantedUser=db.adminUsername || process.env.ADMIN_USERNAME || 'owner'
+      if(String(username||'').trim()!==wantedUser || !checkPassword(String(password||''),db.adminPasswordHash)) return json(res,401,{error:'Login yoki parol notoâ€˜gâ€˜ri.'})
+      const expires=String(Date.now()+SESSION_TTL*1000); setCookie(res,`${expires}.${sign(expires)}`,SESSION_TTL)
+      return json(res,200,{success:true,username:wantedUser})
+    }
+    if (path==='/api/admin/logout' && method==='POST') { setCookie(res,'',0); return json(res,200,{success:true}) }
+    if (path.startsWith('/api/admin/') && !validSession(req)) return json(res,401,{error:'Admin panelga kirish uchun tizimga kiring.'})
+    if (path==='/api/admin/stats' && method==='GET') { const db=await readDb(); return json(res,200,{menu:db.menu,orders:db.orders,stats:orderStats(db)}) }
+    if (path==='/api/admin/menu' && method==='PUT') {
+      const {menu}=await body(req); if(!Array.isArray(menu) || menu.length>300) return json(res,400,{error:'Menyu maâ€™lumotlari notoâ€˜gâ€˜ri yoki juda katta.'})
+      const db=await readDb(); db.menu=menu; await writeDb(db); return json(res,200,{success:true,count:menu.length})
+    }
+    if (path.startsWith('/api/admin/orders/')) {
+      const id=decodeURIComponent(path.slice('/api/admin/orders/'.length)), db=await readDb(), index=db.orders.findIndex(o=>o.orderNumber===id)
+      if(index<0) return json(res,404,{error:'Buyurtma topilmadi.'})
+      if(method==='DELETE') db.orders.splice(index,1)
+      else if(method==='PATCH') { const {status}=await body(req); db.orders[index].status=status }
+      else return json(res,405,{error:'Method ruxsat etilmagan.'})
+      await writeDb(db); return json(res,200,{success:true,order:db.orders[index]||null})
+    }
+    if (path==='/api/admin/password' && method==='POST') {
+      const {currentPassword,newPassword,newUsername}=await body(req), db=await readDb()
+      if(!checkPassword(String(currentPassword||''),db.adminPasswordHash)) return json(res,400,{error:'Joriy parol notoâ€˜gâ€˜ri.'})
+      if(typeof newPassword!=='string'||newPassword.length<10) return json(res,400,{error:'Yangi parol kamida 10 ta belgidan iborat boâ€˜lsin.'})
+      db.adminPasswordHash=hashPassword(newPassword); db.adminUsername=String(newUsername||db.adminUsername||'owner').trim() || 'owner'; await writeDb(db)
+      return json(res,200,{success:true,username:db.adminUsername})
+    }
+    return json(res,404,{error:'API yoâ€˜li topilmadi.'})
+  } catch(error) { console.error('API error:',error); return json(res,error.status||500,{error:error.message||'Serverda kutilmagan xatolik.'}) }
+}
+

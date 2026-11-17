@@ -1,35 +1,152 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìÕÍ•MÑ…Ñ”°ÕÍ•5•µ¼°ÕÍ•™™•Ðô™É½´€É•…Ðœ)¥µÁ½ÉÐìM•…É °UÑ•¹Í¥±ÍÉ½ÍÍ•ô™É½´€±Õ¥‘”µÉ•…Ðœ)¥µÁ½ÉÐì…Ñ•½É¥•Ì°µ•¹Õ%Ñ•µÌô™É½´€‘…Ñ„½µ•¹Õ…Ñ„œ)¥µÁ½ÉÐ½½‘…É™É½´€œ¸½½½‘…Éœ)¥µÁ½ÉÐ½½‘5½‘…°™É½´€œ¸½½½‘5½‘…°œ)¥µÁ½ÉÐìÕÍ•1…¹œô™É½´€½¹Ñ•áÐ½1…¹Õ…•½¹Ñ•áÐœ)¥µÁ½ÉÐì•Ñ5•¹Ôô™É½´€Í•ÉÙ¥•Ì½…‘µ¥¹Á¤œ()•áÁ½ÉÐ‘•™…Õ±Ð™Õ¹Ñ¥½¸5•¹ÕM•Ñ¥½¸ ¤ì(€½¹ÍÐìÐ°±…¹œô€ôÕÍ•1…¹œ ¤(€½¹ÍÐm…Ñ¥Ù•…Ñ•½Éä°Í•ÑÑ¥Ù•…Ñ•½Éåt€ôÕÍ•MÑ…Ñ” …±°œ¤(€½¹ÍÐmÍ•…É¡EÕ•Éä°Í•ÑM•…É¡EÕ•Éåt€ôÕÍ•MÑ…Ñ” œœ¤(€½¹ÍÐmÍ•±•Ñ•‘%Ñ•´°Í•ÑM•±•Ñ•‘%Ñ•µt€ôÕÍ•MÑ…Ñ”¡¹Õ±°¤(€½¹ÍÐm¥Ñ•µÌ°Í•Ñ%Ñ•µÍt€ôÕÍ•MÑ…Ñ”  ¤€ôøì(€€€ÑÉäì(€€€€€½¹ÍÐÉ…Ü€ô±½…±MÑ½É…”¹•Ñ%Ñ•´ Á±½Ù}¥Ñå}µ•¹Õ}ØÈœ¤(€€€€€¥˜€¡É…Ü¤ì(€€€€€€€½¹ÍÐÁ…ÉÍ•€ô)M=8¹Á…ÉÍ”¡É…Ü¤(€€€€€€€¥˜€¡ÉÉ…ä¹¥ÍÉÉ…ä¡Á…ÉÍ•¤€˜˜Á…ÉÍ•¹±•¹Ñ €ø€À¤É•ÑÕÉ¸Á…ÉÍ•(€€€€€ô(€€€ô…Ñ íô(€€€É•ÑÕÉ¸µ•¹Õ%Ñ•µÌ(€ô¤((€ÕÍ•™™•Ð  ¤€ôøì(€€€±•Ð…Ñ¥Ù”€ôÑÉÕ”(€€€½¹ÍÐ±½…‘5•¹Ô€ô€ ¤€ôø•Ñ5•¹Ô ¤¹Ñ¡•¸ ¡É•ÍÕ±Ð¤€ôøì¥˜€¡…Ñ¥Ù”€˜˜É•ÍÕ±Ð¹±•¹Ñ ¤Í•Ñ%Ñ•µÌ¡É•ÍÕ±Ð¤ô¤¹…Ñ   ¤€ôøíô¤(€€€±½…‘5•¹Ô ¤(€€€½¹ÍÐÉ•™É•Í¡]¡•¹Y¥Í¥‰±”€ô€ ¤€ôøì¥˜€¡‘½Õµ•¹Ð¹Ù¥Í¥‰¥±¥ÑåMÑ…Ñ”€ôôô€Ù¥Í¥‰±”œ¤±½…‘5•¹Ô ¤ô(€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á±½Øµµ•¹ÔµÕÁ‘…Ñ•œ°±½…‘5•¹Ô¤(€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ™½ÕÌœ°É•™É•Í¡]¡•¹Y¥Í¥‰±”¤(€€€‘½Õµ•¹Ð¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Ù¥Í¥‰¥±¥Ñå¡…¹”œ°É•™É•Í¡]¡•¹Y¥Í¥‰±”¤(€€€½¹ÍÐÉ•™É•Í¡Q¥µ•È€ôÝ¥¹‘½Ü¹Í•Ñ%¹Ñ•ÉÙ…°¡±½…‘5•¹Ô°€ÌÀÀÀÀ¤(€€€É•ÑÕÉ¸€ ¤€ôøì(€€€€€…Ñ¥Ù”€ô™…±Í”(€€€€€Ý¥¹‘½Ü¹±•…É%¹Ñ•ÉÙ…°¡É•™É•Í¡Q¥µ•È¤(€€€€€Ý¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á±½Øµµ•¹ÔµÕÁ‘…Ñ•œ°±½…‘5•¹Ô¤(€€€€€Ý¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ™½ÕÌœ°É•™É•Í¡]¡•¹Y¥Í¥‰±”¤(€€€€€‘½Õµ•¹Ð¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Ù¥Í¥‰¥±¥Ñå¡…¹”œ°É•™É•Í¡]¡•¹Y¥Í¥‰±”¤(€€€ô(€ô°mt¤((€€¼¼¥±ÑÉ±…¹…¸Ñ…½µ±…È(€½¹ÍÐ™¥±Ñ•É•‘%Ñ•µÌ€ôÕÍ•5•µ¼  ¤€ôøì(€€€É•ÑÕÉ¸¥Ñ•µÌ¹™¥±Ñ•È¡¥Ñ•´€ôøì(€€€€€¥˜€¡¥Ñ•´¹…Ù…¥±…‰±”€ôôô™…±Í”¤É•ÑÕÉ¸™…±Í”(€€€€€½¹ÍÐµ…Ñ¡•Í…Ñ•½Éä€ô…Ñ¥Ù•…Ñ•½Éä€ôôô€…±°œñð¥Ñ•´¹…Ñ•½Éä€ôôô…Ñ¥Ù•…Ñ•½Éä(€€€€€€(€€€€€½¹ÍÐ¹…µ”€ô¥Ñ•´¹¹…µ”ü¹m±…¹tñð¥Ñ•´¹¹…µ•Uèñð€œœ(€€€€€½¹ÍÐ‘•ÍŒ€ô¥Ñ•´¹‘•ÍÉ¥ÁÑ¥½¸ü¹m±…¹tñð¥Ñ•´¹‘•ÍUèñð€œœ(€€€€€€(€€€€€½¹ÍÐÄ€ôÍ•…É¡EÕ•Éä¹Ñ½1½Ý•É…Í” ¤¹ÑÉ¥´ ¤(€€€€€¥˜€ …Ä¤É•ÑÕÉ¸µ…Ñ¡•Í…Ñ•½Éä((€€€€€½¹ÍÐµ…Ñ¡•ÍM•…É €ô¹…µ”¹Ñ½1½Ý•É…Í” ¤¹¥¹±Õ‘•Ì¡Ä¤ñð‘•ÍŒ¹Ñ½1½Ý•É…Í” ¤¹¥¹±Õ‘•Ì¡Ä¤(€€€€€É•Ñ×[h‘éì¶»§q«^wˆX]Ú\ÐØ]YÛÜžH	‰ˆX]Ú\ÔÙX\˜ÚˆJBˆKÚ][\ËXÝ]™PØ]YÛÜžKÙX\˜Ú]Y\žK[™×JB‚ˆ™]\›ˆ
-ˆÙXÝ[ÛˆYH›Y[K\ÙXÝ[ÛˆˆÛ\ÜÓ˜[YOHœË\ÙXÝ[ÛˆN‚ˆ]ˆÛ\ÜÓ˜[YOHœËXÛÛZ[™\ˆX‹Mˆ‚ˆ]ˆÛ\ÜÓ˜[YOH™›^›^XÛÛY™›^\›ÝÈYš][\ËY[™\ÝYžKX™]ÙY[ˆØ\M‚ˆ]‚ˆ]ˆÛ\ÜÓ˜[YOHœË\ÙXÝ[Û‹[X™[š^›š[™ÈY[ž]OÙ]‚ˆˆÛ\ÜÓ˜[YOHœË\ÙXÝ[Û‹]]H‚ˆÝ
-	ÛY[K]IÊ_BˆÚ‚ˆÛ\ÜÓ˜[YOHœË\ÙXÝ[Û‹\ÝX]H‚ˆÝ
-	ÛY[KœÝX]IÊ_BˆÜ‚ˆÙ]‚‚ˆËÊˆZY\]ˆ[œ]H
-‹ßBˆ]ˆÛ\ÜÓ˜[YOHËY[YËMÌˆ™[]]™H‚ˆÙX\˜ÚˆÚ^™O^ÌNHˆÛ\ÜÓ˜[YOH˜XœÛÛ]HYLËHÜLKÌˆ]˜[œÛ]K^KLKÌˆ^[]]YÚ[\‹Y]™[Ë[›Û™HˆˆÏ‚ˆ[œ]ˆ\OH^‚ˆ˜[YO^ÜÙX\˜Ú]Y\ž_BˆÛÚ[™ÙO^ÊJHOˆÙ]ÙX\˜Ú]Y\žJK\™Ù]˜[YJ_BˆXÙZÛ\^Ý
-	ÛY[KœÙX\˜ÚXÙZÛ\‰Ê_BˆÛ\ÜÓ˜[YOHœËZ[œ]LL‹MKL‹H^\ÛH›Ý[™YLž™Ë\Ý\™˜XÙH›Ü™\‹\Ý\™˜XÙKX›Ü™\ˆ›ØÝ\Î˜›Ü™\‹Xœ˜[™›ØÝ\Îœš[™ËLˆ›ØÝ\Îœš[™ËXœ˜[™[YÚ‚ˆÏ‚ˆÙ]‚ˆÙ]‚ˆÙ]‚‚ˆËÊˆ[Ü\ÚXˆ\]˜ÚH
-ÝXÚÞJHÛÜš^›Û[Ø]YÛÜš^XH[™[H
-‹ßBˆ]ˆÛ\ÜÓ˜[YOHœÝXÚÞHÜVÍÌœH‹LÌ™ËX™ËÎMH˜XÚÙ›ÜX›\‹[Y›Ü™\‹^H›Ü™\‹\Ý\™˜XÙKX›Ü™\‹ÎKLÈX‹NÚYÝË]Ø\›K^È‚ˆ]ˆÛ\ÜÓ˜[YOHœËXÛÛZ[™\ˆ‚ˆ]ˆÛ\ÜÓ˜[YOH™›^][\ËXÙ[\ˆØ\LˆÝ™\™›ÝË^X]]È›Ë\ØÜ›Û˜\ˆØÜ›Û\Û[ÛÝKLH‚ˆØØ]YÛÜšY\Ë›X\
+import { useState, useMemo, useEffect } from 'react'
+import { Search, UtensilsCrossed } from 'lucide-react'
+import { categories, menuItems } from '@data/menuData'
+import FoodCard from './FoodCard'
+import FoodModal from './FoodModal'
+import { useLang } from '@context/LanguageContext'
+import { getMenu } from '@services/adminApi'
 
-Ø]
-HOˆÂˆÛÛœÝ\ÐXÝ]™HHXÝ]™PØ]YÛÜžHOOHØ]šYˆÛÛœÝØ]]HH
-Ø]YÛÜšY\Ë‰ØØ]šYX
-HØ]›˜[YU^‚ˆ™]\›ˆ
-ˆ]Û‚ˆÙ^O^ØØ]šYBˆÛÛXÚÏ^Ê
-HOˆÙ]XÝ]™PØ]YÛÜžJØ]šY
-_BˆÛ\ÜÓ˜[YO^Ø›^\Úš[šËL›^][\ËXÙ[\ˆØ\LˆMKLˆ›Ý[™YY[^^ÈÛN^\ÛH›Û\Ù[ZX›Û˜[œÚ][Û‹X[\˜][Û‹LŒÝ\œÛÜ‹\Ú[\ˆ	Âˆ\ÐXÝ]™BˆÈ	Ø™ËXœ˜[™^]Ú]HÚYÝËXœ˜[™\ÛIÂˆˆ	Ø™Ë\Ý\™˜XÙH^[]]YÝ™\Ž^Z[šÈÝ™\Ž˜™Ë\Ý\™˜XÙKZÝ™\ˆ›Ü™\ˆ›Ü™\‹\Ý\™˜XÙKX›Ü™\‰ÂˆXBˆ‚ˆÜ[žØØ]™[[Úš_OÜÜ[‚ˆÜ[žØØ]]_OÜÜ[‚ˆØ]Û‚ˆ
-BˆJ_BˆÙ]‚ˆÙ]‚ˆÙ]‚‚ˆËÊˆ[Û[\ˆ›ÉÞ^]H
-\ÚÝÜˆ\Ý[‹[Øš[ˆˆ\Ý[ŠH
-‹ßBˆ]ˆÛ\ÜÓ˜[YOHœËXÛÛZ[™\ˆ‚ˆÙš[\™Y][\Ë›[™ÝˆÈ
-ˆ]ˆÛ\ÜÓ˜[YOH™ÜšYÜšYXÛÛËLˆY™ÜšYXÛÛËLÈÎ™ÜšYXÛÛËMØ\LÈÛN™Ø\Mˆ‚ˆÙš[\™Y][\Ë›X\
+export default function MenuSection() {
+  const { t, lang } = useLang()
+  const [activeCategory, setActiveCategory] = useState('all')
+  const [searchQuery, setSearchQuery] = useState('')
+  const [selectedItem, setSelectedItem] = useState(null)
+  const [items, setItems] = useState(() => {
+    try {
+      const raw = localStorage.getItem('plov_city_menu_v2')
+      if (raw) {
+        const parsed = JSON.parse(raw)
+        if (Array.isArray(parsed) && parsed.length > 0) return parsed
+      }
+    } catch {}
+    return menuItems
+  })
 
-][JHOˆ
-ˆ›ÛÙØ\™ˆÙ^O^Ú][KšYHˆ][O^Ú][_HˆÛ”Ù[XÝ^ÊÙ[XÝY
-HOˆÙ]Ù[XÝY][JÙ[XÝY
-_BˆÏ‚ˆ
-J_BˆÙ]‚ˆ
-Hˆ
-ˆ]ˆÛ\ÜÓ˜[YOH^XÙ[\ˆKLMˆ™Ë\Ý\™˜XÙH›Ý[™YLÞ›Ü™\ˆ›Ü™\‹\Ý\™˜XÙKX›Ü™\ˆN‚ˆ][œÚ[ÐÜ›ÜÜÙYÚ^™O^ÍHÛ\ÜÓ˜[YOH›^X]]È^[]]YÍLX‹LÈˆÏ‚ˆÈÛ\ÜÓ˜[YOH^[È›ÛX›Û^Z[šÈX‹LH‚ˆÝ
-	ÛY[K™[\IÊ_BˆÚÏ‚ˆÛ\ÜÓ˜[YOH^\ÛH^[]]Y‚ˆÝ
-	ÛY[K™[\R[	Ê_BˆÜ‚ˆÙ]‚ˆ
-_BˆÙ]‚‚ˆËÊˆ›ÛÙ]Z[È[Ù[
-‹ßBˆ›ÛÙ[Ù[ˆÙ^O^ÜÙ[XÝY][OËšYÏÈ	ØÛÜÙY	ßBˆ][O^ÜÙ[XÝY][_Bˆ\ÓÜ[^Ð›ÛÛX[ŠÙ[XÝY][J_BˆÛÛÜÙO^Ê
-HOˆÙ]Ù[XÝY][J[
-_BˆÏ‚ˆÜÙXÝ[Û‚ˆ
-BŸB
+  useEffect(() => {
+    let active = true
+    const loadMenu = () => getMenu().then((result) => { if (active && result.length) setItems(result) }).catch(() => {})
+    loadMenu()
+    const refreshWhenVisible = () => { if (document.visibilityState === 'visible') loadMenu() }
+    window.addEventListener('plov-menu-updated', loadMenu)
+    window.addEventListener('focus', refreshWhenVisible)
+    document.addEventListener('visibilitychange', refreshWhenVisible)
+    const refreshTimer = window.setInterval(loadMenu, 30000)
+    return () => {
+      active = false
+      window.clearInterval(refreshTimer)
+      window.removeEventListener('plov-menu-updated', loadMenu)
+      window.removeEventListener('focus', refreshWhenVisible)
+      document.removeEventListener('visibilitychange', refreshWhenVisible)
+    }
+  }, [])
+
+  // Filtrlangan taomlar
+  const filteredItems = useMemo(() => {
+    return items.filter(item => {
+      if (item.available === false) return false
+      const matchesCategory = activeCategory === 'all' || item.category === activeCategory
+      
+      const name = item.name?.[lang] || item.nameUz || ''
+      const desc = item.description?.[lang] || item.descUz || ''
+      
+      const q = searchQuery.toLowerCase().trim()
+      if (!q) return matchesCategory
+
+      const matchesSearch = name.toLowerCase().includes(q) || desc.toLowerCase().includes(q)
+      return matchesCategory && matchesSearch
+    })
+  }, [items, activeCategory, searchQuery, lang])
+
+  return (
+    <section id="menu-section" className="pc-section pt-8">
+      <div className="pc-container mb-6">
+        <div className="flex flex-col md:flex-row md:items-end justify-between gap-4">
+          <div>
+            <div className="pc-section-label">Bizning menyu</div>
+            <h2 className="pc-section-title">
+              {t('menu.title')}
+            </h2>
+            <p className="pc-section-subtitle">
+              {t('menu.subtitle')}
+            </p>
+          </div>
+
+          {/* Qidiruv inputi */}
+          <div className="w-full md:w-72 relative">
+            <Search 
+              size={18} 
+              className="absolute left-3.5 top-1/2 -translate-y-1/2 text-muted pointer-events-none" 
+            />
+            <input
+              type="text"
+              value={searchQuery}
+              onChange={(e) => setSearchQuery(e.target.value)}
+              placeholder={t('menu.searchPlaceholder')}
+              className="pc-input pl-10 pr-4 py-2.5 text-sm rounded-2xl bg-surface border-surface-border focus:border-brand focus:ring-2 focus:ring-brand-light"
+            />
+          </div>
+        </div>
+      </div>
+
+      {/* Yopishib turuvchi (Sticky) gorizontal kategoriya paneli */}
+      <div className="sticky top-[72px] z-30 bg-bg/95 backdrop-blur-md border-y border-surface-border/80 py-3 mb-8 shadow-warm-xs">
+        <div className="pc-container">
+          <div className="flex items-center gap-2 overflow-x-auto no-scrollbar scroll-smooth py-0.5">
+            {categories.map((cat) => {
+              const isActive = activeCategory === cat.id
+              const catTitle = t(`categories.${cat.id}`) || cat.nameUz
+              return (
+                <button
+                  key={cat.id}
+                  onClick={() => setActiveCategory(cat.id)}
+                  className={`flex-shrink-0 flex items-center gap-2 px-4 py-2 rounded-full text-xs sm:text-sm font-semibold transition-all duration-200 cursor-pointer ${
+                    isActive
+                      ? 'bg-brand text-white shadow-brand-sm'
+                      : 'bg-surface text-muted hover:text-ink hover:bg-surface-hover border border-surface-border'
+                  }`}
+                >
+                  <span>{cat.emoji}</span>
+                  <span>{catTitle}</span>
+                </button>
+              )
+            })}
+          </div>
+        </div>
+      </div>
+
+      {/* Taomlar ro'yxati (Desktop: 4 ustun, Mobil: 2 ustun) */}
+      <div className="pc-container">
+        {filteredItems.length > 0 ? (
+          <div className="grid grid-cols-2 md:grid-cols-3 lg:grid-cols-4 gap-3 sm:gap-6">
+            {filteredItems.map((item) => (
+              <FoodCard 
+                key={item.id} 
+                item={item} 
+                onSelect={(selected) => setSelectedItem(selected)}
+              />
+            ))}
+          </div>
+        ) : (
+          <div className="text-center py-16 bg-surface rounded-3xl border border-surface-border p-8">
+            <UtensilsCrossed size={48} className="mx-auto text-muted/50 mb-3" />
+            <h3 className="text-lg font-bold text-ink mb-1">
+              {t('menu.empty')}
+            </h3>
+            <p className="text-sm text-muted">
+              {t('menu.emptyHint')}
+            </p>
+          </div>
+        )}
+      </div>
+
+      {/* Food Details Modal */}
+      <FoodModal 
+        key={selectedItem?.id ?? 'closed'}
+        item={selectedItem}
+        isOpen={Boolean(selectedItem)}
+        onClose={() => setSelectedItem(null)}
+      />
+    </section>
+  )
+}
+

@@ -1,15 +1,143 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìµ½Ñ¥½¸ô™É½´€™É…µ•Èµµ½Ñ¥½¸œ)¥µÁ½ÉÐìÕÍ•™™•Ð°ÕÍ•MÑ…Ñ”ô™É½´€É•…Ðœ)¥µÁ½ÉÐì…ÉÑAÉ½Ù¥‘•Èô™É½´€½¹Ñ•áÐ½…ÉÑ½¹Ñ•áÐœ)¥µÁ½ÉÐì1…¹Õ…•AÉ½Ù¥‘•Èô™É½´€½¹Ñ•áÐ½1…¹Õ…•½¹Ñ•áÐœ)¥µÁ½ÉÐ9…Ù‰…È™É½´€½µÁ½¹•¹ÑÌ½±…å½ÕÐ½9…Ù‰…Èœ)¥µÁ½ÉÐ½½Ñ•È™É½´€½µÁ½¹•¹ÑÌ½±…å½ÕÐ½½½Ñ•Èœ)¥µÁ½ÉÐ!•É¼™É½´€½µÁ½¹•¹ÑÌ½¡½µ”½!•É¼œ)¥µÁ½ÉÐAÉ½µ½Ñ¥½¹Ì™É½´€½µÁ½¹•¹ÑÌ½¡½µ”½AÉ½µ½Ñ¥½¹Ìœ)¥µÁ½ÉÐ‰½ÕÑM•Ñ¥½¸™É½´€½µÁ½¹•¹ÑÌ½¡½µ”½‰½ÕÑM•Ñ¥½¸œ)¥µÁ½ÉÐ	É…¹¡•Ì™É½´€½µÁ½¹•¹ÑÌ½¡½µ”½	É…¹¡•Ìœ)¥µÁ½ÉÐ5•¹ÕM•Ñ¥½¸™É½´€½µÁ½¹•¹ÑÌ½µ•¹Ô½5•¹ÕM•Ñ¥½¸œ)¥µÁ½ÉÐ…ÉÑÉ…Ý•È™É½´€½µÁ½¹•¹ÑÌ½…ÉÐ½…ÉÑÉ…Ý•Èœ)¥µÁ½ÉÐ‘µ¥¹A…¹•°™É½´€½µÁ½¹•¹ÑÌ½…‘µ¥¸½‘µ¥¹A…¹•°œ)¥µÁ½ÉÐìÉ•½É‘Y¥Í¥Ðô™É½´€Í•ÉÙ¥•Ì½…‘µ¥¹Á¤œ((¼¼e•¹¥°Ù„Í¥±±¥Ä…‘”µ¥¸µÕÀ…¹¥µ…ÑÍ¥å„­½¹™¥ÕÉ…ÑÍ¥å…Í¤)½¹ÍÐ™…‘•%¹UÁY…É¥…¹ÑÌ€ôì(€¡¥‘‘•¸èì½Á…¥Ñäè€À°äè€ÈÐô°(€Ù¥Í¥‰±”èì(€€€½Á…¥Ñäè€Ä°(€€€äè€À°(€€€ÑÉ…¹Í¥Ñ¥½¸èì(€€€€€‘ÕÉ…Ñ¥½¸è€À¸Ô°(€€€€€•…Í”èlÀ¸ÈÔ°€À¸Ä°€À¸ÈÔ°€Åt°(€€€ô°(€ô°)ô()™Õ¹Ñ¥½¸¡•­%Í‘µ¥¸ ¤ì(€½¹ÍÐÁ…Ñ €ôÝ¥¹‘½Ü¹±½…Ñ¥½¸¹Á…Ñ¡¹…µ”¹É•Á±…” ½p¼¼°€œœ¤(€½¹ÍÐ¡…Í €ôÝ¥¹‘½Ü¹±½…Ñ¥½¸¹¡…Í (€½¹ÍÐÍ•…É €ôÝ¥¹‘½Ü¹±½…Ñ¥½¸¹Í•…É (€É•ÑÕÉ¸Á…Ñ €ôôô€œ½…‘µ¥¸œñð¡…Í €ôôô€œ…‘µ¥¸œñð¡…Í €ôôô€œŒ½…‘µ¥¸œñðÍ•…É ¹¥¹±Õ‘•Ì …‘µ¥¸õÑÉÕ”œ¤)ô()•áÁ½ÉÐ‘•™…Õ±Ð™Õ¹Ñ¥½¸ÁÀ ¤ì(€½¹ÍÐm¥Í‘µ¥¹I½ÕÑ”°Í•Ñ%Í‘µ¥¹I½ÕÑ•t€ôÕÍ•MÑ…Ñ”¡¡•­%Í‘µ¥¸¤((€ÕÍ•™™•Ð  ¤€ôøì(€€€½¹ÍÐ¡…¹‘±•I½ÕÑ”€ô€ ¤€ôøÍ•Ñ%Í‘µ¥¹I½ÕÑ”¡¡•­%Í‘µ¥¸ ¤¤(€€€½¹ÍÐ¡…¹‘±•-•å½Ý¸€ô€¡”¤€ôøì(€€€€€€¼¼ÑÉ°€¬M¡¥™Ð€¬€¡‘µ¥¸¡½Ñ­•ä€´™…Å…Ð•…Í¤Õ¡Õ¸Ñ•é­½È­¥É¥Í ¤(€€€€€¥˜€¡”¹ÑÉ±-•ä€˜˜”¹Í¡¥™Ñ-•ä€˜˜€¡”¹­•ä€ôôô€œñð”¹­•ä€ôôô€„œ¤¤ì(€€€€€€€”¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¤(€€€€€€€¥˜€¡Ý¥¹‘½Ü¹±½…Ñ¥½¸¹Á…Ñ¡¹…µ”¹É•Á±…” ½p¼¼°€œœ¤€ôôô€œ½…‘µ¥¸œ¤ì(€€€€€€€€€Ý¥¹‘½Ü¹±½…Ñ¥½¸¹¡É•˜€ô€œ¼œ(€€€€€€€ô•±Í”ì(€€€€€€€€€Ý¥¹‘½Ü¹±½…Ñ¥½¸¹¡…Í €ô€œ…‘µ¥¸œ(€€€€€€€ô(€€€€€ô(€€€ô((€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á½ÁÍÑ…Ñ”œ°¡…¹‘±•I½ÕÑ”¤(€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ¡…Í¡¡…¹”œ°¡…¹‘±•I½ÕÑ”¤(€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½Ý¸œ°¡…¹‘±•-•å½Ý¸¤(€€€É•ÑÕÉ¸€ ¤€ôøì(€€€€€Ý¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á½ÁÍÑ…Ñ”œ°¡…¹‘±•I½ÕÑ”¤(€€€€€Ý¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ¡…Í¡¡…¹”œ°¡…¹‘±•I½ÕÑ”¤(€€€€€Ý¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½Ý¸œ°¡…¹‘±•-•å½Ý¸¤(€€€ô(€ô°mt¤((€ÕÍ•™™•Ð  ¤€ôøì(€€€¥˜€ …¥Í‘µ¥¹I½ÕÑ”¤ì(€€€€€É•½É‘Y¥Í¥Ð ¤¹…Ñ   ¤€ôøí÷[h‘éì¶»§q«^vˆBˆKÚ\ÐYZ[”›Ý]WJB‚ˆYˆ
-\ÐYZ[”›Ý]JH™]\›ˆYZ[”[™[Ï‚‚ˆ™]\›ˆ
-ˆ[™ÝXYÙT›ÝšY\‚ˆØ\›ÝšY\‚ˆ]ˆÛ\ÜÓ˜[YOH›Z[‹Z\ØÜ™Y[ˆ™ËXÜ™X[KLL^Z[šÈÝ™\™›ÝË^ZY[ˆÙ[XÝ[ÛŽ˜™ËXœ˜[™Ù[XÝ[ÛŽ^]Ú]H›^›^XÛÛ\ÝYžKX™]ÙY[ˆ‚ˆˆËÊˆØZY˜H\\ÚYYÚH˜]šYØ]Ú^XH
-‹ßBˆ˜]˜˜\ˆÏ‚‚ˆËÊˆ\ÛÜÚ^HÛÛ[ÜZ[ZH
-‹ßBˆXZ[ˆÛ\ÜÓ˜[YOH™›^LHËY[Ý™\™›ÝË^ZY[ˆ‚ˆËÊˆKˆ\›È›ÉÛ[ZH
-‹ßBˆ[Ý[Û‹œÙXÝ[Û‚ˆ[š]X[HšY[ˆ‚ˆÚ[R[•šY]ÏHš\ÚX›H‚ˆšY]ÜÜ^ÞÈÛ˜ÙNˆYK[[Ý[ˆŒMH_Bˆ˜\šX[Ï^Ù˜YR[•\˜\šX[ßBˆ‚ˆ\›ÈÏ‚ˆÛ[Ý[Û‹œÙXÝ[Û‚‚ˆËÊˆ‹ˆZÜÚ^X[\ˆ˜HX^Ý\ÈÛÛX›Û\ˆ
-‹ßBˆ[Ý[Û‹œÙXÝ[Û‚ˆ[š]X[HšY[ˆ‚ˆÚ[R[•šY]ÏHš\ÚX›H‚ˆšY]ÜÜ^ÞÈÛ˜ÙNˆYK[[Ý[ˆŒMH_Bˆ˜\šX[Ï^Ù˜YR[•\˜\šX[ßBˆ‚ˆ›Û[Ý[ÛœÈÏ‚ˆÛ[Ý[Û‹œÙXÝ[Û‚‚ˆËÊˆËˆ›ÞHY[ž]H
-ÜÚ\‹[ÉÜÚ[XÚ[\‹Ø[]\‹XÚ[[ZÛ\ŠH
-‹ßBˆ[Ý[Û‹œÙXÝ[Û‚ˆ[š]X[HšY[ˆ‚ˆÚ[R[•šY]ÏHš\ÚX›H‚ˆšY]ÜÜ^ÞÈÛ˜ÙNˆYK[[Ý[ˆŒ_Bˆ˜\šX[Ï^Ù˜YR[•\˜\šX[ßBˆ‚ˆY[TÙXÝ[ÛˆÏ‚ˆÛ[Ý[Û‹œÙXÝ[Û‚‚ˆËÊˆˆ“™YØH^[˜[ˆÝˆÚ]OÈˆ8 %H\Ý[›ZÈ˜H\ÚÛ˜ÚÛÉÜœØ]ÚXÚ\šH
-‹ßBˆ[Ý[Û‹œÙXÝ[Û‚ˆ[š]X[HšY[ˆ‚ˆÚ[R[•šY]ÏHš\ÚX›H‚ˆšY]ÜÜ^ÞÈÛ˜ÙNˆYK[[Ý[ˆŒMH_Bˆ˜\šX[Ï^Ù˜YR[•\˜\šX[ßBˆ‚ˆX›Ý]ÙXÝ[ÛˆÏ‚ˆÛ[Ý[Û‹œÙXÝ[Û‚‚ˆËÊˆKˆÜÚÙ[YÚHÈHš[X[˜H[\˜ZÝ]ˆ\š]H[™[H
-‹ßBˆ[Ý[Û‹œÙXÝ[Û‚ˆ[š]X[HšY[ˆ‚ˆÚ[R[•šY]ÏHš\ÚX›H‚ˆšY]ÜÜ^ÞÈÛ˜ÙNˆYK[[Ý[ˆŒLˆ_Bˆ˜\šX[Ï^Ù˜YR[•\˜\šX[ßBˆ‚ˆœ˜[˜Ú\ÈÏ‚ˆÛ[Ý[Û‹œÙXÝ[Û‚ˆÛXZ[‚‚ˆËÊˆÉÜHÚÚÛÛY˜[™ÛH\Ú[X]H›ÛÝ\ˆ
-‹ßBˆ›ÛÝ\ˆÏ‚‚ˆËÊˆØ]˜]ÚH
-ÛYKZ[ˆ˜]Ù\ŠH	ˆÚXÚÛÝ]	ˆÝXØÙ\ÜÈ[Ù[\šH
-‹ßBˆØ\˜]Ù\ˆÏ‚ˆˆÙ]‚ˆÐØ\›ÝšY\‚ˆÓ[™ÝXYÙT›ÝšY\‚ˆ
-BŸB
+import { motion } from 'framer-motion'
+import { useEffect, useState } from 'react'
+import { CartProvider } from '@context/CartContext'
+import { LanguageProvider } from '@context/LanguageContext'
+import Navbar from '@components/layout/Navbar'
+import Footer from '@components/layout/Footer'
+import Hero from '@components/home/Hero'
+import Promotions from '@components/home/Promotions'
+import AboutSection from '@components/home/AboutSection'
+import Branches from '@components/home/Branches'
+import MenuSection from '@components/menu/MenuSection'
+import CartDrawer from '@components/cart/CartDrawer'
+import AdminPanel from '@components/admin/AdminPanel'
+import { recordVisit } from '@services/adminApi'
+
+// Yengil va silliq Fade-in-up animatsiya konfiguratsiyasi
+const fadeInUpVariants = {
+  hidden: { opacity: 0, y: 24 },
+  visible: {
+    opacity: 1,
+    y: 0,
+    transition: {
+      duration: 0.5,
+      ease: [0.25, 0.1, 0.25, 1],
+    },
+  },
+}
+
+function checkIsAdmin() {
+  const path = window.location.pathname.replace(/\/$/, '')
+  const hash = window.location.hash
+  const search = window.location.search
+  return path === '/admin' || hash === '#admin' || hash === '#/admin' || search.includes('admin=true')
+}
+
+export default function App() {
+  const [isAdminRoute, setIsAdminRoute] = useState(checkIsAdmin)
+
+  useEffect(() => {
+    const handleRoute = () => setIsAdminRoute(checkIsAdmin())
+    const handleKeyDown = (e) => {
+      // Ctrl + Shift + A (Admin hotkey - faqat egasi uchun tezkor kirish)
+      if (e.ctrlKey && e.shiftKey && (e.key === 'A' || e.key === 'a')) {
+        e.preventDefault()
+        if (window.location.pathname.replace(/\/$/, '') === '/admin') {
+          window.location.href = '/'
+        } else {
+          window.location.hash = '#admin'
+        }
+      }
+    }
+
+    window.addEventListener('popstate', handleRoute)
+    window.addEventListener('hashchange', handleRoute)
+    window.addEventListener('keydown', handleKeyDown)
+    return () => {
+      window.removeEventListener('popstate', handleRoute)
+      window.removeEventListener('hashchange', handleRoute)
+      window.removeEventListener('keydown', handleKeyDown)
+    }
+  }, [])
+
+  useEffect(() => {
+    if (!isAdminRoute) {
+      recordVisit().catch(() => {})
+    }
+  }, [isAdminRoute])
+
+  if (isAdminRoute) return <AdminPanel />
+
+  return (
+    <LanguageProvider>
+      <CartProvider>
+        <div className="min-h-screen bg-cream-100 text-ink overflow-x-hidden selection:bg-brand selection:text-white flex flex-col justify-between">
+          
+          {/* Sahifa tepasidagi navigatsiya */}
+          <Navbar />
+
+          {/* Asosiy kontent oqimi */}
+          <main className="flex-1 w-full overflow-x-hidden">
+            {/* 1. Hero bo'limi */}
+            <motion.section
+              initial="hidden"
+              whileInView="visible"
+              viewport={{ once: true, amount: 0.15 }}
+              variants={fadeInUpVariants}
+            >
+              <Hero />
+            </motion.section>
+
+            {/* 2. Aksiyalar va Maxsus Kombolar */}
+            <motion.section
+              initial="hidden"
+              whileInView="visible"
+              viewport={{ once: true, amount: 0.15 }}
+              variants={fadeInUpVariants}
+            >
+              <Promotions />
+            </motion.section>
+
+            {/* 3. Boy Menyu (Oshlar, Qo'shimchalar, Salatlar, Ichimliklar) */}
+            <motion.section
+              initial="hidden"
+              whileInView="visible"
+              viewport={{ once: true, amount: 0.08 }}
+              variants={fadeInUpVariants}
+            >
+              <MenuSection />
+            </motion.section>
+
+            {/* 4. "Nega aynan Plov City?" â€” 4 ta ustunlik va ishonch ko'rsatkichlari */}
+            <motion.section
+              initial="hidden"
+              whileInView="visible"
+              viewport={{ once: true, amount: 0.15 }}
+              variants={fadeInUpVariants}
+            >
+              <AboutSection />
+            </motion.section>
+
+            {/* 5. Toshkentdagi 3 ta filial va interaktiv xarita paneli */}
+            <motion.section
+              initial="hidden"
+              whileInView="visible"
+              viewport={{ once: true, amount: 0.12 }}
+              variants={fadeInUpVariants}
+            >
+              <Branches />
+            </motion.section>
+          </main>
+
+          {/* To'q shokolad rangli hashamatli Footer */}
+          <Footer />
+
+          {/* Savatcha (Slide-in Drawer) & Checkout & Success modallari */}
+          <CartDrawer />
+          
+        </div>
+      </CartProvider>
+    </LanguageProvider>
+  )
+}
+

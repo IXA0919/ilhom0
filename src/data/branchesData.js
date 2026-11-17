@@ -90,3 +90,4 @@ export function getBranchLandmark(branch, lang = 'uz') {
   if (lang === 'en' && branch.landmarkEn) return branch.landmarkEn
   return branch.landmark
 }
+

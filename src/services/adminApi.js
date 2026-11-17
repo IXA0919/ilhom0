@@ -1,73 +1,191 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìµ•¹Õ%Ñ•µÌ…ÌÍÑ…ÉÑ•É5•¹Ôô™É½´€‘…Ñ„½µ•¹Õ…Ñ„œ()½¹ÍÐ59U}-d€ô€Á±½Ù}¥Ñå}µ•¹Õ}ØÈœ)½¹ÍÐ=IIM}-d€ô€Á±½Ù}¥Ñå}½É‘•ÉÍ}ØÈœ)½¹ÍÐY%M%Q=IM}-d€ô€Á±½Ù}¥Ñå}Ù¥Í¥Ñ½ÉÍ}ØÈœ)½¹ÍÐY%M%Q=I}%}-d€ô€Á±½Ù}¥Ñå}Ù¥Í¥Ñ½É}ÕÕ¥œ)½¹ÍÐUMI}-d€ô€Á±½Ù}¥Ñå}…‘µ¥¹}ÕÍ•É}ØÈœ)½¹ÍÐMMM%=9}-d€ô€Á±½Ù}¥Ñå}…‘µ¥¹}Í•ÍÍ¥½¹}ØÈœ()…Íå¹Œ™Õ¹Ñ¥½¸…Á¤¡Á…Ñ °½ÁÑ¥½¹Ì€ôíô¤ì(€½¹ÍÐÉ•ÍÁ½¹Í”€ô…Ý…¥Ð™•Ñ ¡Á…Ñ °ì(€€€É•‘•¹Ñ¥…±Ìè€Í…µ”µ½É¥¥¸œ°(€€€¡•…‘•ÉÌèì€½¹Ñ•¹ÐµQåÁ”œè€…ÁÁ±¥…Ñ¥½¸½©Í½¸œ°€¸¸¸¡½ÁÑ¥½¹Ì¹¡•…‘•ÉÌñðíô¤ô°(€€€€¸¸¹½ÁÑ¥½¹Ì°(€ô¤(€½¹ÍÐÁ…å±½…€ô…Ý…¥ÐÉ•ÍÁ½¹Í”¹©Í½¸ ¤¹…Ñ   ¤€ôø€¡íô¤¤(€¥˜€ …É•ÍÁ½¹Í”¹½¬¤Ñ¡É½Ü¹•ÜÉÉ½È¡Á…å±½…¹•ÉÉ½Èñð€M•ÉÙ•È‰¥±…¸…±½Å„á…Ñ½Í¤¸œ¤(€É•ÑÕÉ¸Á…å±½…)ô()•áÁ½ÉÐ™Õ¹Ñ¥½¸•ÑY¥Í¥Ñ½É% ¤ì(€ÑÉäì(€€€±•Ð¥€ô±½…±MÑ½É…”¹•Ñ%Ñ•´¡Y%M%Q=I}%}-d¤(€€€¥˜€ …¥¤ì(€€€€€¥€ôÑåÁ•½˜ÉåÁÑ¼€„ôô€Õ¹‘•™¥¹•œ€˜˜ÉåÁÑ¼¹É…¹‘½µUU%(€€€€€€€€üÉåÁÑ¼¹É…¹‘½µUU% ¤(€€€€€€€€è€Ù¥Ì´œ€¬…Ñ”¹¹½Ü ¤€¬€œ´œ€¬5…Ñ ¹É…¹‘½´ ¤¹Ñ½MÑÉ¥¹œ ÌØ¤¹Í±¥” È°€ä¤(€€€€€±½…±MÑ½É…”¹Í•Ñ%Ñ•´¡Y%M%Q=I}%}-d°¥¤(€€€ô(€€€É•ÑÕÉ¸¥(€ô…Ñ ìÉ•ÑÕÉ¸€…¹½¸µÙ¥Í¥Ñ½Èœô)ô()•áÁ½ÉÐ…Íå¹Œ™Õ¹Ñ¥½¸É•½É‘Y¥Í¥Ð ¤ì(€½¹ÍÐÙ¥Í¥Ñ½É%€ô•ÑY¥Í¥Ñ½É% ¤(€½¹ÍÐ¹½Ü€ô¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤(€ÑÉäì(€€€½¹ÍÐÉ…Ü€ô±½…±MÑ½É…”¹•Ñ%Ñ•´¡Y%M%Q=IM}-d¤(€€€½¹ÍÐÙ¥Í¥Ñ½ÉÌ€ôÉ…Ü€ü)M=8¹Á…ÉÍ”¡É…Ü¤€èmt(€€€½¹ÍÐ¥Ñ•´€ôÙ¥Í¥Ñ½ÉÌ¹™¥¹¡Ø€ôøØ¹¥€ôôôÙ¥Í¥Ñ½É%¤(€€€¥˜€¡¥Ñ•´¤ì¥Ñ•´¹±…ÍÑY¥Í¥Ð€ô¹½Üì¥Ñ•´¹Ù¥Í¥Ñ½Õ¹Ð€ô€¡¥Ñ•´¹Ù¥Í¥Ñ½Õ¹Ðñð€Ä¤€¬€Äô(€€€•±Í”Ù¥Í¥Ñ½ÉÌ¹ÁÕÍ ¡ì¥èÙ¥Í¥Ñ½É%°™¥ÉÍÑY¥Í¥Ðè¹½Ü°±…ÍÑY¥Í¥Ðè¹½Ü°Ù¥Í¥Ñ½Õ¹Ðè€Ä°¡…Í=É‘•É•è™…±Í”ô¤(€€€±½…±MÑ½É…”¹Í•Ñ%Ñ•´¡Y%M%Q=IM}-d°)M=8¹ÍÑÉ¥¹¥™ä¡Ù¥Í¥Ñ½ÉÌ¤¤(€ô…Ñ íô(€ÑÉäì…Ý…¥Ð…Á¤ œ½…Á¤½Ù¥Í¥Ñ½ÉÌœ°ìµ•Ñ¡½è€A=MPœ°‰½‘äè)M=8¹ÍÑÉ¥¹¥™ä¡ìÙ¥Í¥Ñ½É%ô¤ô¤ô(€…Ñ €¡•ÉÉ½È¤ì½¹Í½±”¹Ý…É¸ Q…Í¡É¥™¹¤ÕµÕµ¥ä‰…é…„åÕ‰½É¥ˆ‰¿Ša±µ…‘¤èœ°•ÉÉ½È¹µ•ÍÍ…”¤ô(€É•ÑÕÉ¸ìÍÕ•ÍÌèÑÉÕ”ô)ô()•áÁ½ÉÐ…Íå¹Œ™Õ¹Ñ¥½¸É•½É‘=É‘•È¡½É‘•È¤ì(€½¹ÍÐ½µÁ±•Ñ•=É‘•È€ôì(€€€€¸¸¹½É‘•È°(€€€½É‘•É9Õµ‰•Èè½É‘•È¹½É‘•É9Õµ‰•Èñð€A´œ€¬…Ñ”¹¹½Ü ¤¹Ñ½MÑÉ¥¹œ ÌØ¤¹Ñ½UÁÁ•É…Í” ¤°(€€€É•½É‘•‘Ðè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤°(€€€Ù¥Í¥Ñ½É%è•ÑY¥Í¥Ñ½É% ¤°(€€€ÍÑ…ÑÕÌè½É‘•È¹ÍÑ…ÑÕÌñð€¹•Üœ°(€ô(€ÑÉäì(€€€…Ý…¥Ð…Á¤ œ½…Á¤½½É‘•ÉÌœ°ìµ•Ñ¡½è€A=MPœ°‰½‘äè)M=8¹ÍÑÉ¥¹¥™ä¡½µÁ±•Ñ•=É‘•È¤ô¤(€ô…Ñ €¡•ÉÉ½È¤ì(€€€ÑÉäì(ƒ[h‘éì¶»§q«^tÛÛœÝØ]™YH”ÓÓ‹œ\œÙJØØ[ÝÜ˜YÙK™Ù]][JÔ‘T”×ÒÑVJH	Ö×IÊBˆØ]™Y[œÚY
-ÛÛ\]SÜ™\ŠBˆØØ[ÝÜ˜YÙKœÙ]][JÔ‘T”×ÒÑVK”ÓÓ‹œÝš[™ÚYžJØ]™Y
-JBˆHØ]ÚßBˆ›ÝÈ\œ›Ü‚ˆBˆžHÂˆÛÛœÝØ]™YH”ÓÓ‹œ\œÙJØØ[ÝÜ˜YÙK™Ù]][JÔ‘T”×ÒÑVJH	Ö×IÊBˆØ]™Y[œÚY
-ÛÛ\]SÜ™\ŠBˆØØ[ÝÜ˜YÙKœÙ]][JÔ‘T”×ÒÑVK”ÓÓ‹œÝš[™ÚYžJØ]™Y
-JBˆHØ]ÚßBˆ™]\›ˆÈÝXØÙ\ÜÎˆYKÜ™\ŽˆÛÛ\]SÜ™\ˆBŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆÙ]Y[J
-HÂˆžHÂˆÛÛœÝÈY[HHH]ØZ]\J	ËØ\KÛY[IÊBˆYˆ
-\œ˜^Kš\Ð\œ˜^JY[JH	‰ˆY[K›[™Ý
-HÂˆØØ[ÝÜ˜YÙKœÙ]][JQS•WÒÑVK”ÓÓ‹œÝš[™ÚYžJY[JJBˆ™]\›ˆY[BˆBˆHØ]Ú
-\œ›ÜŠHÂˆÛÛœÛÛKØ\›Š	Õ[][Z^HY[ž]H]ZÛ[›XYN‰Ë\œ›Ü‹›Y\ÜØYÙJBˆBˆžHÂˆÛÛœÝ˜]ÈHØØ[ÝÜ˜YÙK™Ù]][JQS•WÒÑVJBˆÛÛœÝØ]™YH˜]ÈÈ”ÓÓ‹œ\œÙJ˜]ÊHˆ[ˆYˆ
-\œ˜^Kš\Ð\œ˜^JØ]™Y
-H	‰ˆØ]™Y›[™Ý
-H™]\›ˆØ]™YˆHØ]ÚßBˆžHÈØØ[ÝÜ˜YÙKœÙ]][JQS•WÒÑVK”ÓÓ‹œÝš[™ÚYžJÝ\\“Y[JJHHØ]ÚßBˆ™]\›ˆÝ\\“Y[BŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆØ]™SY[JY[JHÂˆYˆ
-P\œ˜^Kš\Ð\œ˜^JY[JJH›ÝÈ™]È\œ›ÜŠ	ÓY[ž]H›ø &^]›ø &\ÚHÞš[IÊBˆ]ØZ]\J	ËØ\KØYZ[‹ÛY[IËÈY]Ùˆ	ÔU	Ë›ÙNˆ”ÓÓ‹œÝš[™ÚYžJÈY[HJHJBˆØØ[ÝÜ˜YÙKœÙ]][JQS•WÒÑVK”ÓÓ‹œÝš[™ÚYžJY[JJBˆÚ[™ÝË™\Ü]Ú]™[
-™]ÈÝ\ÝÛQ]™[
-	ÜÝ‹[Y[K]\]Y	ËÈ]Z[ˆY[HJJBˆ™]\›ˆÈÝXØÙ\ÜÎˆYKÛÝ[ˆY[K›[™ÝBŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆÙ]YZ[‘]J
-HÂˆÛÛœÝ]HH]ØZ]\J	ËØ\KØYZ[‹ÜÝ]ÉÊBˆÛÛœÝY[HH\œ˜^Kš\Ð\œ˜^J]K›Y[JH	‰ˆ]K›Y[K›[™ÝÈ]K›Y[Hˆ]ØZ]Ù]Y[J
-BˆÛÛœÝÜ™\œÈH\œ˜^Kš\Ð\œ˜^J]K›Ü™\œÊHÈ]K›Ü™\œÈˆ×BˆÛÛœÝÝ]ÈH]KœÝ]ÈÈš\Ú]ÜœÎˆÜ™\™Yš\Ú]ÜœÎˆœ›ÝÜÚ[™ÓÛ›NˆÜ™\œÎˆÜ™\œË›[™ÝÝ[™]™[YNˆÛÛ™\œÚ[Û”˜]Nˆ	ÌŒ	ÈBˆ™]\›ˆÈY[KÜ™\œËÝ]ÈBŸB‚™^Ü\Þ[˜È[˜Ý[Ûˆ™[[Ý™SÜ™\ŠÜ™\“[X™\ŠHÂˆ]ØZ]\J	ËØ\KØYZ[‹ÛÜ™\œËÉÈ
-È[˜ÛÙUT’PÛÛ\Û™[
-Ü™\“[X™\ŠKÈY]Ùˆ	ÑSUIÈJBˆ™]\›ˆÈÝXØÙ\ÜÎˆYHBŸB‚™^Ü\Þ[˜È[˜Ý[Ûˆ\]SÜ™\”Ý]\ÊÜ™\“[X™\‹™]ÔÝ]\ÊHÂˆ™]\›ˆ\J	ËØ\KØYZ[‹ÛÜ™\œËÉÈ
-È[˜ÛÙUT’PÛÛ\Û™[
-Ü™\“[X™\ŠKÂˆY]Ùˆ	ÔUÒ	Ëˆ›ÙNˆ”ÓÓ‹œÝš[™ÚYžJÈÝ]\Îˆ™]ÔÝ]\ÈJKˆJBŸB‚™^Ü\Þ[˜È[˜Ý[Ûˆ\ØYY[R[XYÙJš[SÜ‘]U\›
-HÂˆYˆ
-Yš[SÜ‘]U\›
-H™]\›ˆ	ÉÂˆYˆ
-\[Ùˆš[SÜ‘]U\›OOH	ÜÝš[™ÉÈ	‰ˆ
-š[SÜ‘]U\›œÝ\ÕÚ]
-	Ú	ÊHš[SÜ‘]U\›œÝ\ÕÚ]
-	Ù]N‰ÊJJH™]\›ˆš[SÜ‘]U\›ˆ™]\›ˆ™]È›ÛZ\ÙJ
-™\ÛÛ™K™Z™XÝ
-HOˆÂˆÛÛœÝ™XY\ˆH™]Èš[T™XY\Š
-Bˆ™XY\‹›Û™\œ›ÜˆH
+import { menuItems as starterMenu } from '@data/menuData'
 
-HOˆ™Z™XÝ
-™]È\œ›ÜŠ	Ô˜\ÛH˜^[[šHø &ZXˆ›ø &XYK‰ÊJBˆ™XY\‹›Û›ØYH
+const MENU_KEY = 'plov_city_menu_v2'
+const ORDERS_KEY = 'plov_city_orders_v2'
+const VISITORS_KEY = 'plov_city_visitors_v2'
+const VISITOR_ID_KEY = 'plov_city_visitor_uuid'
+const USER_KEY = 'plov_city_admin_user_v2'
+const SESSION_KEY = 'plov_city_admin_session_v2'
 
-HOˆÂˆÛÛœÝ[YÈH™]È[XYÙJ
-Bˆ[YË›Û™\œ›ÜˆH
+async function api(path, options = {}) {
+  const response = await fetch(path, {
+    credentials: 'same-origin',
+    headers: { 'Content-Type': 'application/json', ...(options.headers || {}) },
+    ...options,
+  })
+  const payload = await response.json().catch(() => ({}))
+  if (!response.ok) throw new Error(payload.error || 'Server bilan aloqa xatosi.')
+  return payload
+}
 
-HOˆ™Z™XÝ
-™]È\œ›ÜŠ	Ô˜\ÛH›Ü›X][šHØÚXˆ›ø &XYK‰ÊJBˆ[YË›Û›ØYH
+export function getVisitorId() {
+  try {
+    let id = localStorage.getItem(VISITOR_ID_KEY)
+    if (!id) {
+      id = typeof crypto !== 'undefined' && crypto.randomUUID
+        ? crypto.randomUUID()
+        : 'vis-' + Date.now() + '-' + Math.random().toString(36).slice(2, 9)
+      localStorage.setItem(VISITOR_ID_KEY, id)
+    }
+    return id
+  } catch { return 'anon-visitor' }
+}
 
-HOˆÂˆÛÛœÝX^HLˆÛÛœÝ˜][ÈHX]›Z[ŠKX^ÈX]›X^
-[YËÚY[YËšZYÚ
-JBˆÛÛœÝØ[˜\ÈHØÝ[Y[˜Ü™X]Q[[Y[
-	ØØ[˜\ÉÊBˆØ[˜\ËÚYHX]›X^
-KX]œ›Ý[™
-[YËÚY
-ˆ˜][ÊJBˆØ[˜\ËšZYÚHX]›X^
-KX]œ›Ý[™
-[YËšZYÚ
-ˆ˜][ÊJBˆØ[˜\Ë™Ù]ÛÛ^
-	Ì™	ÊK™˜]Ò[XYÙJ[YËØ[˜\ËÚYØ[˜\ËšZYÚ
-Bˆ™\ÛÛ™JØ[˜\ËÑ]UT“
-	Ú[XYÙKÚœYÉËÌŠJBˆBˆ[YËœÜ˜ÈH™XY\‹œ™\Ý[ˆBˆ™XY\‹œ™XY\Ñ]UT“
-š[SÜ‘]U\›
-BˆJBŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆÙ]YZ[”Ù\ÜÚ[ÛŠ
-HÂˆžHÂˆÛÛœÝ™\Ý[H]ØZ]\J	ËØ\KØYZ[‹ÜÙ\ÜÚ[Û‰ÊBˆYˆ
-™\Ý[˜]][XØ]Y
-HÙ\ÜÚ[Û”ÝÜ˜YÙKœÙ]][JÑTÔÒSÓ—ÒÑVK”ÓÓ‹œÝš[™ÚYžJÈ]][XØ]YˆYHJJBˆ[ÙHÙ\ÜÚ[Û”ÝÜ˜YÙKœ™[[Ý™R][JÑTÔÒSÓ—ÒÑVJBˆ™]\›ˆ™\Ý[˜]][XØ]YOOHYBˆHØ]ÚÈ™]\›ˆ˜[ÙHBŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆYZ[“ÙÚ[ŠY[YšY\‹\ÜÝÛÜ™
-HÂˆÛÛœÝ™\Ý[H]ØZ]\J	ËØ\KØYZ[‹ÛÙÚ[‰ËÂˆY]Ùˆ	ÔÔÕ	Ëˆ›ÙNˆ”ÓÓ‹œÝš[™ÚYžJÈ\Ù\›˜[YNˆ
-Y[YšY\ˆ	ÉÊKš[J
-K\ÜÝÛÜ™ˆ\ÜÝÛÜ™	ÉÈJKˆJBˆÙ\ÜÚ[Û”ÝÜ˜YÙKœÙ]][JÑTÔÒSÓ—ÒÑVK”ÓÓ‹œÝš[™ÚYžJÈ]][XØ]YˆYHJJBˆØØ[ÝÜ˜YÙKœÙ]][JTÑT—ÒÑVK”ÓÓ‹œÝš[™ÚYžJÈ\Ù\›˜[YNˆ
-Y[YšY\ˆ	ÛÝÛ™\‰ÊKš[J
-K\Ý\ÜÝÛÜ™Ú[™ÙNˆ™]È]J
-KÒTÓÔÝš[™Ê
-HJJBˆ™]\›ˆÈÝXØÙ\ÜÎˆYKÙ\ÜÚ[ÛŽˆ™\Ý[BŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆYZ[“ÙÛÝ]
+export async function recordVisit() {
+  const visitorId = getVisitorId()
+  const now = new Date().toISOString()
+  try {
+    const raw = localStorage.getItem(VISITORS_KEY)
+    const visitors = raw ? JSON.parse(raw) : []
+    const item = visitors.find(v => v.id === visitorId)
+    if (item) { item.lastVisit = now; item.visitCount = (item.visitCount || 1) + 1 }
+    else visitors.push({ id: visitorId, firstVisit: now, lastVisit: now, visitCount: 1, hasOrdered: false })
+    localStorage.setItem(VISITORS_KEY, JSON.stringify(visitors))
+  } catch {}
+  try { await api('/api/visitors', { method: 'POST', body: JSON.stringify({ visitorId }) }) }
+  catch (error) { console.warn('Tashrifni umumiy bazaga yuborib boâ€˜lmadi:', error.message) }
+  return { success: true }
+}
 
-HÂˆžHÈ]ØZ]\J	ËØ\KØYZ[‹ÛÙÛÝ]	ËÈY]Ùˆ	ÔÔÕ	Ë›ÙNˆ	ÞßIÈJHHš[˜[HÂˆÙ\ÜÚ[Û”ÝÜ˜YÙKœ™[[Ý™R][JÑTÔÒSÓ—ÒÑVJBˆBˆ™]\›ˆÈÝXØÙ\ÜÎˆYHBŸB‚™^Ü\Þ[˜È[˜Ý[ÛˆÚ[™ÙPYZ[”\ÜÝÛÜ™
-ÈÝ\œ™[\ÜÝÛÜ™™]Ô\ÜÝÛÜ™™]Õ\Ù\›˜[YHJHÂˆÛÛœÝ™\Ý[H]ØZ]\J	ËØ\KØYZ[‹Ü\ÜÝÛÜ™	ËÂˆY]Ùˆ	ÔÔÕ	Ëˆ›ÙNˆ”ÓÓ‹œÝš[™ÚYžJÈÝ\œ™[\ÜÝÛÜ™™]Ô\ÜÝÛÜ™™]Õ\Ù\›˜[YHJKˆJBˆÛÛœÝÝ\œ™[HÙ]YZ[XØÛÝ[[™›Ê
-BˆØØ[ÝÜ˜YÙKœÙ]][JTÑT—ÒÑVK”ÓÓ‹œÝš[™ÚYžJÂˆ\Ù\›˜[YNˆ™\Ý[\Ù\›˜[YH™]Õ\Ù\›˜[YHÝ\œ™[\Ù\›˜[YH	ÛÝÛ™\‰Ëˆ\Ý\ÜÝÛÜ™Ú[™ÙNˆ™]È]J
-KÒTÓÔÝš[™Ê
-KˆJJBˆ™]\›ˆÈÝXØÙ\ÜÎˆYK\Ù\›˜[YNˆ™\Ý[\Ù\›˜[YHBŸB‚™^Ü[˜Ý[ÛˆÙ]YZ[XØÛÝ[[™›Ê
-HÂˆžHÈ™]\›ˆÈ\Ù\›˜[YNˆ	ÛÝÛ™\‰Ë‹‹’”ÓÓ‹œ\œÙJØØ[ÝÜ˜YÙK™Ù]][JTÑT—ÒÑVJH	ÞßIÊHHBˆØ]ÚÈ™]\›ˆÈ\Ù\›˜[YNˆ	ÛÝÛ™\‰ÈHBŸBƒB
+export async function recordOrder(order) {
+  const completeOrder = {
+    ...order,
+    orderNumber: order.orderNumber || 'PC-' + Date.now().toString(36).toUpperCase(),
+    recordedAt: new Date().toISOString(),
+    visitorId: getVisitorId(),
+    status: order.status || 'new',
+  }
+  try {
+    await api('/api/orders', { method: 'POST', body: JSON.stringify(completeOrder) })
+  } catch (error) {
+    try {
+      const saved = JSON.parse(localStorage.getItem(ORDERS_KEY) || '[]')
+      saved.unshift(completeOrder)
+      localStorage.setItem(ORDERS_KEY, JSON.stringify(saved))
+    } catch {}
+    throw error
+  }
+  try {
+    const saved = JSON.parse(localStorage.getItem(ORDERS_KEY) || '[]')
+    saved.unshift(completeOrder)
+    localStorage.setItem(ORDERS_KEY, JSON.stringify(saved))
+  } catch {}
+  return { success: true, order: completeOrder }
+}
+
+export async function getMenu() {
+  try {
+    const { menu } = await api('/api/menu')
+    if (Array.isArray(menu) && menu.length) {
+      localStorage.setItem(MENU_KEY, JSON.stringify(menu))
+      return menu
+    }
+  } catch (error) {
+    console.warn('Umumiy menyu yuklanmadi:', error.message)
+  }
+  try {
+    const raw = localStorage.getItem(MENU_KEY)
+    const saved = raw ? JSON.parse(raw) : null
+    if (Array.isArray(saved) && saved.length) return saved
+  } catch {}
+  try { localStorage.setItem(MENU_KEY, JSON.stringify(starterMenu)) } catch {}
+  return starterMenu
+}
+
+export async function saveMenu(menu) {
+  if (!Array.isArray(menu)) throw new Error('Menyu roâ€˜yxat boâ€˜lishi lozim')
+  await api('/api/admin/menu', { method: 'PUT', body: JSON.stringify({ menu }) })
+  localStorage.setItem(MENU_KEY, JSON.stringify(menu))
+  window.dispatchEvent(new CustomEvent('plov-menu-updated', { detail: menu }))
+  return { success: true, count: menu.length }
+}
+
+export async function getAdminData() {
+  const data = await api('/api/admin/stats')
+  const menu = Array.isArray(data.menu) && data.menu.length ? data.menu : await getMenu()
+  const orders = Array.isArray(data.orders) ? data.orders : []
+  const stats = data.stats || { visitors: 0, orderedVisitors: 0, browsingOnly: 0, orders: orders.length, totalRevenue: 0, conversionRate: '0.0' }
+  return { menu, orders, stats }
+}
+
+export async function removeOrder(orderNumber) {
+  await api('/api/admin/orders/' + encodeURIComponent(orderNumber), { method: 'DELETE' })
+  return { success: true }
+}
+
+export async function updateOrderStatus(orderNumber, newStatus) {
+  return api('/api/admin/orders/' + encodeURIComponent(orderNumber), {
+    method: 'PATCH',
+    body: JSON.stringify({ status: newStatus }),
+  })
+}
+
+export async function uploadMenuImage(fileOrDataUrl) {
+  if (!fileOrDataUrl) return ''
+  if (typeof fileOrDataUrl === 'string' && (fileOrDataUrl.startsWith('http') || fileOrDataUrl.startsWith('data:'))) return fileOrDataUrl
+  return new Promise((resolve, reject) => {
+    const reader = new FileReader()
+    reader.onerror = () => reject(new Error('Rasm faylini oâ€˜qib boâ€˜lmadi.'))
+    reader.onload = () => {
+      const img = new Image()
+      img.onerror = () => reject(new Error('Rasm formatini ochib boâ€˜lmadi.'))
+      img.onload = () => {
+        const max = 900
+        const ratio = Math.min(1, max / Math.max(img.width, img.height))
+        const canvas = document.createElement('canvas')
+        canvas.width = Math.max(1, Math.round(img.width * ratio))
+        canvas.height = Math.max(1, Math.round(img.height * ratio))
+        canvas.getContext('2d').drawImage(img, 0, 0, canvas.width, canvas.height)
+        resolve(canvas.toDataURL('image/jpeg', 0.72))
+      }
+      img.src = reader.result
+    }
+    reader.readAsDataURL(fileOrDataUrl)
+  })
+}
+
+export async function getAdminSession() {
+  try {
+    const result = await api('/api/admin/session')
+    if (result.authenticated) sessionStorage.setItem(SESSION_KEY, JSON.stringify({ authenticated: true }))
+    else sessionStorage.removeItem(SESSION_KEY)
+    return result.authenticated === true
+  } catch { return false }
+}
+
+export async function adminLogin(identifier, password) {
+  const result = await api('/api/admin/login', {
+    method: 'POST',
+    body: JSON.stringify({ username: (identifier || '').trim(), password: password || '' }),
+  })
+  sessionStorage.setItem(SESSION_KEY, JSON.stringify({ authenticated: true }))
+  localStorage.setItem(USER_KEY, JSON.stringify({ username: (identifier || 'owner').trim(), lastPasswordChange: new Date().toISOString() }))
+  return { success: true, session: result }
+}
+
+export async function adminLogout() {
+  try { await api('/api/admin/logout', { method: 'POST', body: '{}' }) } finally {
+    sessionStorage.removeItem(SESSION_KEY)
+  }
+  return { success: true }
+}
+
+export async function changeAdminPassword({ currentPassword, newPassword, newUsername }) {
+  const result = await api('/api/admin/password', {
+    method: 'POST',
+    body: JSON.stringify({ currentPassword, newPassword, newUsername }),
+  })
+  const current = getAdminAccountInfo()
+  localStorage.setItem(USER_KEY, JSON.stringify({
+    username: result.username || newUsername || current.username || 'owner',
+    lastPasswordChange: new Date().toISOString(),
+  }))
+  return { success: true, username: result.username }
+}
+
+export function getAdminAccountInfo() {
+  try { return { username: 'owner', ...JSON.parse(localStorage.getItem(USER_KEY) || '{}') } }
+  catch { return { username: 'owner' } }
+}
+
+

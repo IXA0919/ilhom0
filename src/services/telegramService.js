@@ -1,49 +1,150 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Ô¼¨¨(€¨ƒŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠV@(€¨Q1I4	=P%9QIQM%ea%i5Q$ƒŠPA1=X%Qd(€¨ƒŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠV@(€¨UÍ¡‰Ôá¥éµ…ĞÙ•ˆµÍ…åÑ‘…¸‰•É¥±…¸‰…É¡„‰ÕåÕÉÑµ…±…É¹¤Ñ¼œÉ¥‘…¸µÑ¼œÉ¤(€¨Í¥é¹¥¹œQ•±•É…´‰½Ñ¥¹¥èå½­¤½Á•É…Ñ½É±…ÈÕÉÕ¡¥„½­…¹…±¥„åÕ‰½É…‘¤¸(€¨€(€¨M=i1M e<I%E9=5M$è(€¨€Ä¸	½Ñ…Ñ¡•È½ÉÅ…±¤å…¹¤‰½Ğ½¡¥¹œÙ„½±¥¹…¸Ñ½­•¹¹¤Q1I5}	=Q}Q=-8„Å¼å¥¹œ¸(€¨€È¸ÕÍ•É¥¹™½‰½Ğ½ÉÅ…±¤¼é¥¹¥é¹¥¹œå½­¤‰ÕåÕÉÑµ„ÑÕÍ¡…‘¥…¸ÕÉÕ¡¹¥¹œ¡…Ğ%Í¥¹¤½±¥¹œ(€¨€€€Ù„Q1I5}!Q}%„Å¼å¥¹œ€¡ÕÉÕ ¥Í¤½‘…Ñ‘„µ¥¹ÕÌ‰¥±…¸‰½Í¡±…¹…‘¤è€´ÄÀÀ¸¸¸¤¸(€¨¼((¼¨¨(€¨	ÕåÕÉÑµ…¹¤Q•±•É…´A$½ÉÅ…±¤åÕ‰½É¥Í (€¨Á…É…´í½‰©•Ñô½É‘•É…Ñ„€´	ÕåÕÉÑµ„Ñ…™Í¥±½Ñ±…É¤(€¨É•ÑÕÉ¹ÌíAÉ½µ¥Í”ñìÍÕ•ÍÌè‰½½±•…¸°µ•ÍÍ…”üèÍÑÉ¥¹œôùô(€¨¼)•áÁ½ÉĞ…Íå¹Œ™Õ¹Ñ¥½¸Í•¹‘=É‘•ÉQ½Q•±•É…´¡½É‘•É…Ñ„¤ì(€½¹ÍĞ™½Éµ…ÑÑ•‘Q•áĞ€ô™½Éµ…ÑQ•±•É…µ=É‘•É5•ÍÍ…”¡½É‘•É…Ñ„¤((€ÑÉäì(€€€½¹ÍĞÉ•ÍÁ½¹Í”€ô…İ…¥Ğ™•Ñ  œ½…Á¤½Ñ•±•É…´œ°ì(€€€€€µ•Ñ¡½è€‰A=MPˆ°(€€€€€¡•…‘•ÉÌèì(€€€€€€€€‰½¹Ñ•¹ĞµQåÁ”ˆè€‰…ÁÁ±¥…Ñ¥½¸½©Í½¸ˆ°(€€€€€ô°(€€€€€‰½‘äè)M=8¹ÍÑÉ¥¹¥™ä¡ìÑ•áĞè™½Éµ…ÑÑ•‘Q•áĞô¤°(€€€ô¤((€€€½¹ÍĞÉ•ÍÕ±Ğ€ô…İ…¥ĞÉ•ÍÁ½¹Í”¹©Í½¸ ¤((€€€¥˜€ …É•ÍÁ½¹Í”¹½¬ñğ€…É•ÍÕ±Ğ¹½¬¤ì(€€€€€½¹Í½±”¹•ÉÉ½È ‰mQ•±•É…´M•ÉÙ¥”ÉÉ½Étèˆ°É•ÍÕ±Ğ¤(€€€€€É•ÑÕÉ¸ìÍÕ•ÍÌè™…±Í”°µ•ÍÍ…”èÉ•ÍÕ±Ğ¹‘•ÍÉ¥ÁÑ¥½¸ñğ€‰Q•±•É…´A$á…Ñ½±¥¤ˆô(€€€ô((€€€É•ÑÕÉ¸ìÍÕ•ÍÌèÑÉÕ”ô(€ô…Ñ €¡•ÉÉ½È¤ì(€€€½¹Í½±”¹•ÉÉ½È ‰mQ•±•É…´9•Ñİ½É¬ÉÉ½Étèˆ°•ÉÉ½È¤(€€€É•ÑÕÉ¸ìÍÕ•ÍÌè™…±Í”°µ•ÍÍ…”è€‰%¹Ñ•É¹•Ñ„Õ±…¹¥Í¡‘„á…Ñ½±¥¬åÕè‰•É‘¤ˆô(€ô)ô((¼¨¨(€¨	ÕåÕÉÑµ„µ„±Õµ½Ñ±…É¥¹¤Q•±•É…´Õ¡Õ¸¡¥É½å±¤!Q50™½Éµ…Ñ‘…¤¡•­­„…å±…¹Ñ¥É¥Í (€¨¼)™Õ¹Ñ¥½¸™½Éµ…ÑQ•±•É…µ=É‘•É5•ÍÍ…”¡½É‘•È¤ì(€½¹ÍĞì(€€€½É‘•É9Õµ‰•È°(€€€É•…Ñ•‘Ğ°(€€€ÕÍÑ½µ•È°(€€€‘•±¥Ù•ÉåQåÁ”°(€€€Í•±•Ñ•‘	É…¹ °(€€€Á…åµ•¹Ñ5•Ñ¡½°(€€€¥Ñ•µÌ°(€€€ÍÕ‰Ñ½Ñ…°°(€€€‘•±¥Ù•Éå•”°(€€€Ñ½Ñ…±AÉ¥”°(€€€¹½Ñ”°(€ô€ô½É‘•È((€½¹ÍĞ‘…Ñ•MÑÈ€ô¹•Ü…Ñ”¡É•…Ñ•‘Ğñğ…Ñ”¹¹½Ü ¤¤¹Ñ½1½…±•MÑÉ¥¹œ ‰ÕèµW[h‘éì¶»§q«^t‹Âˆ[YV›Û™Nˆ\ÚXKÕ\ÚÙ[‹ˆYX\ˆ›[Y\šXÈ‹ˆ[ÛˆŒ‹YYÚ]‹ˆ^NˆŒ‹YYÚ]‹ˆİ\ˆŒ‹YYÚ]‹ˆZ[]NˆŒ‹YYÚ]‹ˆJB‚ˆËÈY]Ø^šXˆ™\š\Ú\İ[YØHÛÉÜ˜HX[š[X]šBˆ][]™\R[™›ÈHˆ‚ˆYˆ
-[]™\U\HOOHœXÚİ\ŠHÂˆ[]™\R[™›ÈH<'ãàÈ”XX[Z[\ÚØˆš[X[[ˆÛXˆÙ]\Ú¼'ãèˆ‘š[X[Øˆ	ÜÙ[XİYœ˜[˜Ú\ÛÜÚ^Hš[X[
-][\ÛØ›Ù
-HŸXˆH[ÙHÂˆ[]™\R[™›ÈH<'æ¦ˆ”XX[Z[\ÚØˆY]Ø^šXˆ™\š\Ú
-İ\Y\ŠW¼'äãH“X[š[Øˆ	Øİ\İÛY\‹˜Y™\ÜÈ’ÛÉÜœØ][XYØ[ˆŸXˆB‚ˆËÈÉÛİˆ\šBˆ]^[Y[^Hˆ‚ˆYˆ
-^[Y[Y]ÙOOH˜Ø\ÚŠH^[Y[^H¼'ä­H˜\Y[ÜœX[H‚ˆ[ÙHYˆ
-^[Y[Y]ÙOOH˜Ø\™ÛÛ›[™HŠH^[Y[^H¼'ä¬ÈÛXÚÈÈ^[YH
-İ\Y\™ØJH‚ˆ[ÙHYˆ
-^[Y[Y]ÙOOH\›Z[˜[ŠH^[Y[^H¼'äçÈ^˜Ø\™È[[È\›Z[˜[‚ˆ[ÙH^[Y[^H^[Y[Y]Ù“˜\Y[‚‚ˆËÈ[Û[\ˆ›ÉŞ^]BˆÛÛœİ][\Õ^H][\Âˆ›X\
+/**
+ * â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•
+ * TELEGRAM BOT INTEGRATSIYA XIZMATI â€” PLOV CITY
+ * â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•
+ * Ushbu xizmat veb-saytdan berilgan barcha buyurtmalarni to'g'ridan-to'g'ri
+ * sizning Telegram botingiz yoki operatorlar guruhiga/kanaliga yuboradi.
+ * 
+ * SOZLASH YO'RIQNOMASI:
+ * 1. @BotFather orqali yangi bot oching va olingan tokenni TELEGRAM_BOT_TOKEN ga qo'ying.
+ * 2. @userinfobot orqali o'zingizning yoki buyurtma tushadigan guruhning Chat ID sini oling
+ *    va TELEGRAM_CHAT_ID ga qo'ying (guruh id si odatda minus bilan boshlanadi: -100...).
+ */
 
-][K[™^
-HOˆÂˆÛÛœİ][U]HH][K›˜[YU^ˆ][K›˜[YOË^ˆ•[ÛH‚ˆÛÛœİ][UÙZYÚH][KÙZYÚÈ
-	Ú][KÙZYÚJXˆˆ‚ˆÛÛœİ][TšXÙHH
-][K[š]šXÙH][KœšXÙH
-H
-ˆ
-][Kœ]X[]HJBˆ™]\›ˆ‰Ú[™^
-È_KØˆ	Ú][K™[[ÚšH¼'ãlˆŸH‰Ù\ØØ\R[
-][U]J_IÙ\ØØ\R[
-][UÙZYÚ
-_OØ—ˆ8¥%	Ú][Kœ]X[]_HÛ˜H0åÈ	Ù›Ü›X]šXÙJ][K[š]šXÙH][KœšXÙJ_HH‰Ù›Ü›X]šXÙJ][TšXÙJ_HÛÉÛOØ˜ˆJBˆš›Ú[Š——ˆŠB‚ˆËÈÚZÈX˜\šBˆ™]\›ˆ¼'å)H–PS‘ÒH•VUT•PHÉÛÜ™\“[X™\ŸOØ‚¸¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ B¼'äáH•˜\]NØˆ	Ù]TİŸB‚¼'äi“ZZ›ŞØˆ	Ù\ØØ\R[
-İ\İÛY\‹›˜[YJ_B¼'äçˆ•[Y›ÛØˆÛÙO‰Øİ\İÛY\‹œÛ™_OØÛÙO‚‰Ù[]™\R[™›ßB¼'ä¬•ÉÛİˆ\šNØˆ	Ü^[Y[^B‚¼'æäˆ•VUT•PHT’ÒP’NØ‚¸¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ B‰Ú][\Õ^B¸¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ x¥ B¼'äéˆ•[Û[\ˆİ[[X\ÚNØˆ	Ù›Ü›X]šXÙJİXİ[
-_HÛÉÛB¼'æ¦ˆ–Y]Ø^šXˆ™\š\ÚØˆ	Ù[]™\Q™YHOOHÈ‘TS<'ã¢OØˆˆˆ	Ù›Ü›X]šXÙJ[]™\Q™YJ_HÛÉÛXB¼'ä­H’SRHÉÓÕØˆO‰Ù›Ü›X]šXÙJİ[šXÙJ_HÛÉÛOØİO‚‚‰Û›İHÈ<'äçH’İ\Y\™ØH^›ÚØˆO°ªÉÙ\ØØ\R[
-›İJ_p®ÏÚO—˜ˆˆŸB¸¦¨HO’[[[ÜËZZ›Şˆš[[ˆYZÈš[[ˆ›ÙÉÛ[š[™ÈOÚO‚˜š[J
-BŸB‚‹ÊŠ‚ˆ
-ˆ˜\šH›Ü›X]\Ú[Ü™[XÚ\ÚH
-X\Ø[[ˆŒOˆˆŠBˆ
-‹Â™[˜İ[Ûˆ›Ü›X]šXÙJ[JHÂˆ™]\›ˆ™]È[“[X™\‘›Ü›X]
-^‹UVˆŠK™›Ü›X]
-[H
-BŸB‚‹ÊŠ‚ˆ
-ˆS[YZÜÚ^X[\šY[ˆ[[ŞXBˆ
-‹Â™[˜İ[Ûˆ\ØØ\R[
-İŠHÂˆYˆ
-\İŠH™]\›ˆˆ‚ˆ™]\›ˆİš[™ÊİŠBˆœ™\XÙJÉ‹ÙË‰˜[\ÈŠBˆœ™\XÙJÏÙË‰›ÈŠBˆœ™\XÙJÏ‹ÙË‰™İÈŠBˆœ™\XÙJÈ‹ÙË‰œ][İÈŠBŸB‚‹ÊŠ‚ˆ
-ˆ[šZØ[^]\XH˜\X[Z[šHÙ[™\˜]Ú^XHZ[\Ú
-X\Ø[[ˆÌŒLKMŒJBˆ
-‹Â™^Ü[˜İ[ÛˆÙ[™\˜]SÜ™\“[X™\Š
-HÂˆÛÛœİ]HH™]È]J
-BˆÛÛœİYX\ˆHİš[™Ê]K™Ù][YX\Š
-JKœÛXÙJLŠBˆÛÛœİ[ÛHİš[™Ê]K™Ù][Û
+/**
+ * Buyurtmani Telegram API orqali yuborish
+ * @param {object} orderData - Buyurtma tafsilotlari
+ * @returns {Promise<{ success: boolean, message?: string }>}
+ */
+export async function sendOrderToTelegram(orderData) {
+  const formattedText = formatTelegramOrderMessage(orderData)
 
-H
-ÈJKœYİ\
-‹ŒŠBˆÛÛœİ˜[™ÛHHX]™›ÛÜŠL
-ÈX]œ˜[™ÛJ
-H
-ˆL
-Bˆ™]\›ˆÉŞYX\ŸIÛ[ÛKIÜ˜[™Û_XŸB
+  try {
+    const response = await fetch('/api/telegram', {
+      method: "POST",
+      headers: {
+        "Content-Type": "application/json",
+      },
+      body: JSON.stringify({ text: formattedText }),
+    })
+
+    const result = await response.json()
+
+    if (!response.ok || !result.ok) {
+      console.error("[Telegram Service Error]:", result)
+      return { success: false, message: result.description || "Telegram API xatoligi" }
+    }
+
+    return { success: true }
+  } catch (error) {
+    console.error("[Telegram Network Error]:", error)
+    return { success: false, message: "Internetga ulanishda xatolik yuz berdi" }
+  }
+}
+
+/**
+ * Buyurtma ma'lumotlarini Telegram uchun chiroyli HTML formatdagi chekka aylantirish
+ */
+function formatTelegramOrderMessage(order) {
+  const {
+    orderNumber,
+    createdAt,
+    customer,
+    deliveryType,
+    selectedBranch,
+    paymentMethod,
+    items,
+    subtotal,
+    deliveryFee,
+    totalPrice,
+    note,
+  } = order
+
+  const dateStr = new Date(createdAt || Date.now()).toLocaleString("uz-UZ", {
+    timeZone: "Asia/Tashkent",
+    year: "numeric",
+    month: "2-digit",
+    day: "2-digit",
+    hour: "2-digit",
+    minute: "2-digit",
+  })
+
+  // Yetkazib berish usuliga ko'ra manzil matni
+  let deliveryInfo = ""
+  if (deliveryType === "pickup") {
+    deliveryInfo = `ğŸƒ <b>Qabul qilish:</b> Filialdan olib ketish\nğŸ¢ <b>Filial:</b> ${selectedBranch || "Asosiy filial (Yunusobod)"}`
+  } else {
+    deliveryInfo = `ğŸšš <b>Qabul qilish:</b> Yetkazib berish (Kuryer)\nğŸ“ <b>Manzil:</b> ${customer.address || "Ko'rsatilmagan"}`
+  }
+
+  // To'lov turi
+  let paymentText = ""
+  if (paymentMethod === "cash") paymentText = "ğŸ’µ Naqd pul orqali"
+  else if (paymentMethod === "card_online") paymentText = "ğŸ’³ Click / Payme (Kuryerga)"
+  else if (paymentMethod === "terminal") paymentText = "ğŸ“Ÿ Uzcard / Humo terminal"
+  else paymentText = paymentMethod || "Naqd pul"
+
+  // Taomlar ro'yxati
+  const itemsText = items
+    .map((item, index) => {
+      const itemTitle = item.nameUz || item.name?.uz || "Taom"
+      const itemWeight = item.weight ? ` (${item.weight})` : ""
+      const itemPrice = (item.unitPrice || item.price || 0) * (item.quantity || 1)
+      return `<b>${index + 1}.</b> ${item.emoji || "ğŸ²"} <b>${escapeHtml(itemTitle)}${escapeHtml(itemWeight)}</b>\n   â”” ${item.quantity} dona Ã— ${formatPrice(item.unitPrice || item.price)} = <b>${formatPrice(itemPrice)} so'm</b>`
+    })
+    .join("\n\n")
+
+  // Chek xabari
+  return `
+ğŸ”¥ <b>YANGI BUYURTMA #${orderNumber}</b>
+â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”
+ğŸ“… <b>Vaqti:</b> ${dateStr}
+
+ğŸ‘¤ <b>Mijoz:</b> ${escapeHtml(customer.name)}
+ğŸ“ <b>Telefon:</b> <code>${customer.phone}</code>
+${deliveryInfo}
+ğŸ’° <b>To'lov turi:</b> ${paymentText}
+
+ğŸ›’ <b>BUYURTMA TARKIBI:</b>
+â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”
+${itemsText}
+â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”â”
+ğŸ“¦ <b>Taomlar summasi:</b> ${formatPrice(subtotal)} so'm
+ğŸšš <b>Yetkazib berish:</b> ${deliveryFee === 0 ? "<b>BEPUL ğŸ‰</b>" : `${formatPrice(deliveryFee)} so'm`}
+ğŸ’µ <b>JAMI TO'LOV:</b> <u><b>${formatPrice(totalPrice)} so'm</b></u>
+
+${note ? `ğŸ“ <b>Kuryerga izoh:</b> <i>Â«${escapeHtml(note)}Â»</i>\n` : ""}
+âš¡ <i>Iltimos, mijoz bilan zudlik bilan bog'laning!</i>
+`.trim()
+}
+
+/**
+ * Narxni formatlash yordamchisi (masalan: 42000 -> "42 000")
+ */
+function formatPrice(num) {
+  return new Intl.NumberFormat("uz-UZ").format(num || 0)
+}
+
+/**
+ * HTML inyeksiyalaridan himoya
+ */
+function escapeHtml(str) {
+  if (!str) return ""
+  return String(str)
+    .replace(/&/g, "&amp;")
+    .replace(/</g, "&lt;")
+    .replace(/>/g, "&gt;")
+    .replace(/"/g, "&quot;")
+}
+
+/**
+ * Unikal buyurtma raqamini generatsiya qilish (masalan: PC2611-4821)
+ */
+export function generateOrderNumber() {
+  const date = new Date()
+  const year = String(date.getFullYear()).slice(-2)
+  const month = String(date.getMonth() + 1).padStart(2, "0")
+  const random = Math.floor(1000 + Math.random() * 9000)
+  return `PC${year}${month}-${random}`
+}
+

@@ -1,36 +1,133 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐìÕÍ•MÑ…Ñ”°ÕÍ•5•µ¼ô™É½´€É•…Ðœ)¥µÁ½ÉÐìµ½Ñ¥½¸°¹¥µ…Ñ•AÉ•Í•¹”ô™É½´€™É…µ•Èµµ½Ñ¥½¸œ)¥µÁ½ÉÐì`°A±ÕÌ°5¥¹ÕÌ°M¡½ÁÁ¥¹	…œ°±½¬°±…µ”°¡•¬°MÁ…É­±•Ì°UÑ•¹Í¥±ÍÉ½ÍÍ•ô™É½´€±Õ¥‘”µÉ•…Ðœ)¥µÁ½ÉÐìÕÍ•…ÉÐ°•¹•É…Ñ•…ÉÑ%Ñ•µ%ô™É½´€½¹Ñ•áÐ½…ÉÑ½¹Ñ•áÐœ)¥µÁ½ÉÐìÕÍ•1…¹Õ…”ô™É½´€½¹Ñ•áÐ½1…¹Õ…•½¹Ñ•áÐœ)¥µÁ½ÉÐì™½Éµ…ÑAÉ¥”ô™É½´€ÕÑ¥±Ìœ()•áÁ½ÉÐ‘•™…Õ±Ð™Õ¹Ñ¥½¸½½‘5½‘…°¡ì¥Ñ•´°¥Í=Á•¸°½¹±½Í”ô¤ì(€½¹ÍÐì…‘‘%Ñ•´ô€ôÕÍ•…ÉÐ ¤(€½¹ÍÐìÐ°±…¹œô€ôÕÍ•1…¹Õ…” ¤(€½¹ÍÐm¥µ…•ÉÉ½È°Í•Ñ%µ…•ÉÉ½Ét€ôÕÍ•MÑ…Ñ”¡™…±Í”¤((€€¼¼€Ä¸Q…¹±…¹…¸Ù…É¥…¹Ð€¡……È½Í ÑÕÉ±…É¤‰¼±Í„¤(€½¹ÍÐmÍ•±•Ñ•‘Y…É¥…¹Ð°Í•ÑM•±•Ñ•‘Y…É¥…¹Ñt€ôÕÍ•MÑ…Ñ” (€€€¥Ñ•´ü¹¥¹¥Ñ¥…±Y…É¥…¹Ðñð€¡¥Ñ•´ü¹Ù…É¥…¹ÑÌ€˜˜¥Ñ•´¹Ù…É¥…¹ÑÌ¹±•¹Ñ €ø€À€ü¥Ñ•´¹Ù…É¥…¹ÑÍlÁt€è¹Õ±°¤(€€¤((€€¼¼€È¸Q…¹±…¹…¸Å¼Í¡¥µ¡…±…È€¡=ÁÑ¥½¹…°‘µ½¹Ì¤(€½¹ÍÐmÍ•±•Ñ•‘‘‘½¹Ì°Í•ÑM•±•Ñ•‘‘‘½¹Ít€ôÕÍ•MÑ…Ñ”¡mt¤((€€¼¼€Ì¸5¥Å‘½ÈÑ…¹±…¥ € ´€Ä€¬¤(€½¹ÍÐmÅÕ…¹Ñ¥Ñä°Í•ÑEÕ…¹Ñ¥Ñåt€ôÕÍ•MÑ…Ñ” Ä¤((€€¼¼…Èµ½‘…°å½Á¥Ä‰¼±Í„å½­¤¥Ñ•´‰¼±µ…Í„É•¹‘•ÈÅ¥±¥¹µ…å‘¤(€¥˜€ …¥Í=Á•¸ñð€…¥Ñ•´¤É•ÑÕÉ¸¹Õ±°((€€¼¼-¼ÀÑ¥±±¤¹½´Ù„Ñ…ÙÍ¥˜(€½¹ÍÐ‘¥ÍÁ±…å9…µ”€ô¥Ñ•´¹¹…µ”ü¹m±…¹tñð¥Ñ•´¹¹…µ•Uèñð¥Ñ•´¹¹…µ”ü¹Õèñð€=Í œ(€½¹ÍÐ‘¥ÍÁ±…å•ÍŒ€ô¥Ñ•´¹‘•ÍÉ¥ÁÑ¥½¸ü¹m±…¹tñð¥Ñ•´¹‘•ÍUèñð¥Ñ•´¹‘•ÍÉ¥ÁÑ¥½¸ü¹Õèñð€œœ((€€¼¼Q…ÙÍ¥å„•Ñ¥±…‘¥…¸Å¼Í¡¥µ¡…±…ÈÉ¼åá…Ñ¤€¡A±½Ø¥ÑäÕÍ±Õ‰¥‘„¤(€½¹ÍÐ…Ù…¥±…‰±•‘‘½¹Ì€ôl(€€€ì(€€€€€¥è€…‘‘½¸µÅ…é¤œ°(€€€€€¹…µ”èìÕèè€=Ð¿ŠaÍ¡Ñ±¤E…é¤€ È‰¿Ša±…¬¤œ°ÉÔè€ŸBkBÃBßF,ƒBãBÜƒBëBûB÷BãB÷F,€ ÈƒBëFFBûFBëBÀ¤œ°•¸è€!½ÉÍ•µ•…Ð-…éä€ ÈÁÌ¤œô°(€€€€€ÁÉ¥”è€ÄÔÀÀÀ°(€€€€€•µ½©¤è€ŸÂ~–¤œ°(€€€ô°(€€€ì(€€€€€¥è€…‘‘½¸µÅÕ…¥°µ•Ìœ°(€€€€€¹…µ”èìÕèè€	•‘…¹„ÑÕáÕµ¤€ Ì‘½¹„¤œ°ÉÔè€ŸBB×FB×BÿB×BïBãB÷F/BÔƒF?BçFBÀ€ ÌƒF#F¤œ°•¸è€EÕ…¥°Ì€ ÌÁÌ¤œô°(€€€€€ÁÉ¥”è€ØÀÀÀ°(€€€€€•µ½©¤è€ŸÂ~–hœ°(€€€ô°(€€€ì(€€€€€¥è€…‘‘½¸µ…¡¥¡Õ¬œ°(€€€€€¹…µ”èìÕèè€¡¥¡Õ¬Á½µ¥‘½ÈÍ…±…Ñ¤œ°ÉÔè€ŸB‡BÃBïBÃFƒBCFBãBè·FFFFBèœ°•¸è€¡¥¡Õ¬Q½µ…Ñ¼M…±…œô°(€€€€€ÁÉ¥”è€ÄÀÀÀÀ°(€€€€€•µ½©¤è€ŸÂ~6œ°(€€€ô°(€€€ì(€€€€€¥è€…‘‘½¸µ‘½±µ„œ°(€€€€€¹…µ”èìÕèè€UéÕ´‰…É±¤½±µ„€ Ð‘½¹„¤œ°ÉÔè€ŸBSBûBïBóBÀƒBÈƒBËBãB÷BûBÏFBÃBÓB÷F/FƒBïBãFFF3F?Fœ°•¸è€MÑÕ™™•É…Á”1•…Ù•Ì½±µ„œô°(€€€€€ÁÉ¥”è€ÄàÀÀÀ°(€€€€€•µ½©¤è€ŸÂ~6œ°(€€€ô°(€€€ì(€€€€€¥è€…‘‘½¸µÍÕéµ„œ°(€€€€€¹…µ”èìÕèè€E…Ñ§[h‘éì¶»§q«^wHÝ^›XHÛø &Ø]\ˆš[[‰ËNˆ	ô(t`ô-ôc4/4,4`H4-ô-t.ô-t/tc4c‰Ë[Žˆ	ÔÝ˜Z[™Y[ÙÝ\Ý^›XIÈKˆšXÙNˆˆ[[ÚšNˆ	ü'éhÉËˆKˆÂˆYˆ	ØYÛ‹YØ\›XÉËˆ˜[YNˆÈ^Žˆ	Ô[Þ›Û™H\ÚØ[ˆØ\š[\ÛÜ\^[Þ‰ËNˆ	ô'ô-taôdt/tbô.H4aô-t`t/t/´.ˆ4.4-È4.´,4-ô,4/t,	Ë[Žˆ	ÔÛÝËXÛÛÚÙYÚÛHØ\›XÉÈKˆšXÙNˆLˆ[[ÚšNˆ	ü'éá	ËˆKˆB‚ˆËÈ[ÉÜÚ[XÚHÚZØ›Þ[šH›ÜÙØ[™H[ÉÜÚ\ÚÛÛXˆ\Ú\ÚˆÛÛœÝÙÙÛPYÛˆH
-YÛŠHOˆÂˆÙ]Ù[XÝYYÛœÊ
-™]ŠHOˆÂˆÛÛœÝ^\ÝÈH™]‹œÛÛYJ
-JHOˆKšYOOHYÛ‹šY
-BˆYˆ
-^\ÝÊHÂˆ™]\›ˆ™]‹™š[\Š
-JHOˆKšYOOHYÛ‹šY
-BˆH[ÙHÂˆ™]\›ˆË‹‹œ™]‹YÛ—BˆBˆJBˆB‚ˆËÈ˜\ž\ÛØ‹ZÚ]ØšNˆ
-\ÛÜÚ^H˜\šX[˜\žH
-È[ÉÜÚ[XÚ[\ˆÝ[[X\ÚJH
-ˆZ\YÜ‚ˆÛÛœÝ˜\ÙTšXÙHHÙ[XÝY˜\šX[ÈÙ[XÝY˜\šX[œšXÙHˆ
-][KœšXÙH
-BˆÛÛœÝYÛœÕÝ[HÙ[XÝYYÛœËœ™YXÙJ
-Ý[KJHOˆÝ[H
-ÈKœšXÙK
-BˆÛÛœÝ[š]šXÙHH˜\ÙTšXÙH
-ÈYÛœÕÝ[ˆÛÛœÝš[˜[Ý[šXÙHH[š]šXÙH
-ˆ]X[]B‚ˆËÈØ]˜]ÚYØH[ÉÜÚ\ÚˆÛÛœÝ[™PYÐØ\H
+import { useState, useMemo } from 'react'
+import { motion, AnimatePresence } from 'framer-motion'
+import { X, Plus, Minus, ShoppingBag, Clock, Flame, Check, Sparkles, UtensilsCrossed } from 'lucide-react'
+import { useCart, generateCartItemId } from '@context/CartContext'
+import { useLanguage } from '@context/LanguageContext'
+import { formatPrice } from '@utils'
 
-HOˆÂˆÛÛœÝ˜\šX[ÙZYÚHÙ[XÝY˜\šX[ˆÈ
-Ù[XÝY˜\šX[Ø˜[YIÛ[™Ë˜Ú\]
-
-KÕ\\Ø\ÙJ
-H
-È[™ËœÛXÙJJ_XHÙ[XÝY˜\šX[ÙZYÚ
-Bˆˆ][KÙZYÚ‚ˆÛÛœÝYÛœÕ^HÙ[XÝYYÛœË›[™ÝˆˆÈ
-È	ÜÙ[XÝYYÛœË›X\
-HOˆK›˜[YVÛ[™×HK›˜[YK^ŠKš›Ú[Š	Ë	Ê_Xˆˆ	ÉÂ‚ˆÛÛœÝØ\]HH	Ù\Ü^S˜[Y_IÝ˜\šX[ÙZYÚÈ
-	Ý˜\šX[ÙZYÚJXˆ	ÉßIØYÛœÕ^X‚ˆÛÛœÝØ\][RYHÙ[™\˜]PØ\][RY
-ÂˆYˆ][KšYˆÙ[XÝY˜\šX[ˆÙ[XÝY˜\šX[ˆÙ[XÝYYÛœÎˆÙ[XÝYYÛœËˆJB‚ˆY][JÂˆYˆ][KšYˆØ\][RYˆØ\][RYˆ˜[YNˆ][K›˜[YKˆ˜[YU^ŽˆØ\]KˆšXÙNˆ[š]šXÙKˆ[š]šXÙNˆ[š]šXÙKˆÙZYÚˆ˜\šX[ÙZYÚ][KÙZYÚˆÙ[XÝY˜\šX[ˆÙ[XÝY˜\šX[ˆÙ[XÝYYÛœÎˆÙ[XÝYYÛœËˆ]X[]Nˆ]X[]Kˆ[XYÙNˆ][Kš[XYÙKˆ[[ÚšNˆ][K™[[ÚšH	ü'ãl‰ËˆJB‚ˆÛÛÜÙJ
-BˆB‚ˆ™]\›ˆ
-ˆ[š[X]T™\Ù[˜ÙO‚ˆ]ˆÛ\ÜÓ˜[YOH™š^Y[œÙ]L‹ML›^][\ËXÙ[\ˆ\ÝYžKXÙ[\ˆLÈÛNœMÝ™\™›ÝË^KX]]È‚ˆËÊˆÜœXH[Ü˜^]\š\Ú
-‹ßBˆ[Ý[Û‹™]‚ˆ[š]X[^ÞÈÜXÚ]N–j¹âžkºwµçhºÚn¶Šâ‚)Ú–Ú$zw(º{uçMS¢Ö¥¢ëiºÙbë5 0 }}
+export default function FoodModal({ item, isOpen, onClose }) {
+  const { addItem } = useCart()
+  const { t, lang } = useLanguage()
+  const [imageError, setImageError] = useState(false)
+
+  // 1. Tanlangan variant (agar osh turlari bo'lsa)
+  const [selectedVariant, setSelectedVariant] = useState(
+    item?.initialVariant || (item?.variants && item.variants.length > 0 ? item.variants[0] : null)
+  )
+
+  // 2. Tanlangan qo'shimchalar (Optional Add-ons)
+  const [selectedAddons, setSelectedAddons] = useState([])
+
+  // 3. Miqdor tanlagich (- 1 +)
+  const [quantity, setQuantity] = useState(1)
+
+  // Agar modal yopiq bo'lsa yoki item bo'lmasa render qilinmaydi
+  if (!isOpen || !item) return null
+
+  // Ko'p tilli nom va tavsif
+  const displayName = item.name?.[lang] || item.nameUz || item.name?.uz || 'Osh'
+  const displayDesc = item.description?.[lang] || item.descUz || item.description?.uz || ''
+
+  // Tavsiya etiladigan qo'shimchalar ro'yxati (Plov City uslubida)
+  const availableAddons = [
+    {
+      id: 'addon-qazi',
+      name: { uz: 'Ot goâ€˜shtli Qazi (2 boâ€˜lak)', ru: 'ÐšÐ°Ð·Ñ‹ Ð¸Ð· ÐºÐ¾Ð½Ð¸Ð½Ñ‹ (2 ÐºÑƒÑÐ¾Ñ‡ÐºÐ°)', en: 'Horsemeat Kazy (2 pcs)' },
+      price: 15000,
+      emoji: 'ðŸ¥©',
+    },
+    {
+      id: 'addon-quail-eggs',
+      name: { uz: 'Bedana tuxumi (3 dona)', ru: 'ÐŸÐµÑ€ÐµÐ¿ÐµÐ»Ð¸Ð½Ñ‹Ðµ ÑÐ¹Ñ†Ð° (3 ÑˆÑ‚)', en: 'Quail Eggs (3 pcs)' },
+      price: 6000,
+      emoji: 'ðŸ¥š',
+    },
+    {
+      id: 'addon-achichuk',
+      name: { uz: 'Achichuk pomidor salati', ru: 'Ð¡Ð°Ð»Ð°Ñ‚ ÐÑ‡Ð¸Ðº-Ñ‡ÑƒÑ‡ÑƒÐº', en: 'Achichuk Tomato Salad' },
+      price: 10000,
+      emoji: 'ðŸ…',
+    },
+    {
+      id: 'addon-dolma',
+      name: { uz: 'Uzum bargli Dolma (4 dona)', ru: 'Ð”Ð¾Ð»Ð¼Ð° Ð² Ð²Ð¸Ð½Ð¾Ð³Ñ€Ð°Ð´Ð½Ñ‹Ñ… Ð»Ð¸ÑÑ‚ÑŒÑÑ…', en: 'Stuffed Grape Leaves Dolma' },
+      price: 18000,
+      emoji: 'ðŸƒ',
+    },
+    {
+      id: 'addon-suzma',
+      name: { uz: 'Qatiqli Suzma koâ€˜katlar bilan', ru: 'Ð¡ÑƒÐ·ÑŒÐ¼Ð° Ñ Ð·ÐµÐ»ÐµÐ½ÑŒÑŽ', en: 'Strained Yogurt Suzma' },
+      price: 8000,
+      emoji: 'ðŸ¥£',
+    },
+    {
+      id: 'addon-garlic',
+      name: { uz: 'Qozonda pishgan sarimsoqpiyoz', ru: 'ÐŸÐµÑ‡Ñ‘Ð½Ñ‹Ð¹ Ñ‡ÐµÑÐ½Ð¾Ðº Ð¸Ð· ÐºÐ°Ð·Ð°Ð½Ð°', en: 'Slow-cooked Whole Garlic' },
+      price: 5000,
+      emoji: 'ðŸ§„',
+    },
+  ]
+
+  // Qo'shimcha chekboxini bosganda qo'shish/olib tashlash
+  const toggleAddon = (addon) => {
+    setSelectedAddons((prev) => {
+      const exists = prev.some((a) => a.id === addon.id)
+      if (exists) {
+        return prev.filter((a) => a.id !== addon.id)
+      } else {
+        return [...prev, addon]
+      }
+    })
+  }
+
+  // Narx hisob-kitobi: (Asosiy variant narxi + Qo'shimchalar summasi) * Miqdor
+  const basePrice = selectedVariant ? selectedVariant.price : (item.price || 0)
+  const addonsTotal = selectedAddons.reduce((sum, a) => sum + a.price, 0)
+  const unitPrice = basePrice + addonsTotal
+  const finalTotalPrice = unitPrice * quantity
+
+  // Savatchaga qo'shish
+  const handleAddToCart = () => {
+    const variantWeight = selectedVariant
+      ? (selectedVariant[`name${lang.charAt(0).toUpperCase() + lang.slice(1)}`] || selectedVariant.weight)
+      : item.weight
+
+    const addonsText = selectedAddons.length > 0
+      ? ` + ${selectedAddons.map(a => a.name[lang] || a.name.uz).join(', ')}`
+      : ''
+
+    const cartTitle = `${displayName}${variantWeight ? ` (${variantWeight})` : ''}${addonsText}`
+
+    const cartItemId = generateCartItemId({
+      id: item.id,
+      selectedVariant: selectedVariant,
+      selectedAddons: selectedAddons,
+    })
+
+    addItem({
+      id: item.id,
+      cartItemId: cartItemId,
+      name: item.name,
+      nameUz: cartTitle,
+      price: unitPrice,
+      unitPrice: unitPrice,
+      weight: variantWeight || item.weight,
+      selectedVariant: selectedVariant,
+      selectedAddons: selectedAddons,
+      quantity: quantity,
+      image: item.image,
+      emoji: item.emoji || 'ðŸ²',
+    })
+
+    onClose()
+  }
+
+  return (
+    <AnimatePresence>
+      <div className="fixed inset-0 z-50 flex items-center justify-center p-3 sm:p-4 overflow-y-auto">
+        {/* Orqa qoraytirish */}
+        <motion.div
+          initial={{ opacity: 0 }}
           animate={{ opacity: 1 }}
           exit={{ opacity: 0 }}
           onClick={onClose}
@@ -76,20 +173,181 @@ BˆB‚ˆ™]\›ˆ
 
             {/* Holat yorlig'i */}
             {item.badge && (
-              <div ÖÚ$z{-®éÜj×Æ74æÖSÒ&'6öÇWFRF÷ÓBÆVgBÓB¢Ó#à¢Ç7â6Æ74æÖSÒ&–æÆ–æRÖfÆW‚—FV×2Ö6VçFW"vÓãR‚Ó2’Ó&÷VæFVBÖgVÆÂFW‡B×‡2föçBÖ&öÆB&rÕ²4C“DSeÒFW‡B×v†—FR6†F÷rÖ'&æB×6Ò#à¢ÄfÆÖR6—¦S×³'Ò6Æ74æÖSÒ&f–ÆÂ×v†—FR"óà¢Ç7ãç¶—FVÒæ&FvWÓÂ÷7ãà¢Â÷7ãà¢ÂöF—cà¢—Ð ¢²ò¢¶Æ÷&—–†¶6Â’fF—–÷&Ææ—6‚fF’¢÷Ð¢ÆF—b6Æ74æÖSÒ&'6öÇWFR&÷GFöÒÓBÆVgBÓB&–v‡BÓB¢ÓfÆW‚—FV×2Ö6VçFW"vÓ"ãRFW‡B×v†—FR#à¢¶—FVÒæ6Æ÷&–W2bb€¢ÆF—b6Æ74æÖSÒ'‚Ó2’ÓãR&÷VæFVBÖgVÆÂ&rÖ&Æ6²óc&6¶G&÷Ö&ÇW"ÖÖBFW‡B×‡2föçBÖ&öÆBfÆW‚—FV×2Ö6VçFW"vÓãR&÷&FW"&÷&FW"×v†—FRó#à¢ÄfÆÖR6—¦S×³GÒ6Æ74æÖSÒ'FW‡BÕ²4Sc”C#EÒ"óà¢Ç7ãç¶—FVÒæ6Æ÷&–W7Ò¶6ÃÂ÷7ãà¢ÂöF—cà¢—Ð¢¶—FVÒç&WF–ÖRbb€¢ÆF—b6Æ74æÖSÒ'‚Ó2’ÓãR&÷VæFVBÖgVÆÂ&rÖ&Æ6²óc&6¶G&÷Ö&ÇW"ÖÖBFW‡B×‡2föçBÖ&öÆBfÆW‚—FV×2Ö6VçFW"vÓãR&÷&FW"&÷&FW"×v†—FRó#à¢Ä6Æö6²6—¦S×³GÒ6Æ74æÖSÒ'FW‡BÕ²4C“DSeÒ"óà¢Ç7ãç¶—FVÒç&WF–ÖWÓÂ÷7ãà¢ÂöF—cà¢—Ð¢ÂöF—cà¢ÂöF—cà ¢²ò¢)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y ¢"âòtärU5ETã¢Fg6–bÂ÷'6—–Æ"Âòw6†–Ö6†Æ ¢)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y)Y¢÷Ð¢ÆF—b6Æ74æÖSÒ&ÖC§rÓó"fÆW‚fÆW‚Ö6öÂ§W7F–g’Ö&WGvVVâ÷fW&fÆ÷r×’ÖWFòÖ‚Ö‚Õ³cf…ÒÖC¦Ö‚Ö‚Õ³“'f…Ò#à¢ÆF—b6Æ74æÖSÒ'Ób6Ó§Ór76R×’ÓR#à¢²ò¢6&Æf†f¶FVv÷&—–¢÷Ð¢ÆF—cà¢Ç7â6Æ74æÖSÒ'FW‡BÕ³…ÒföçBÖ&öÆBWW&66RG&6¶–ær×v–FW"FW‡BÕ²4C“DSeÒ#à¢Æ÷b6—G’÷6‡†öæ6¢Â÷7ãà¢Æƒ"6Æ74æÖSÒ'FW‡B×†Â6Ó§FW‡BÓ'†ÂföçBÖW‡G&&öÆBFW‡BÕ²3cuÒ×BÓãRÆVF–ær×6çVr#à¢¶F—7Æ”æÖWÐ¢Âöƒ#à¢Ç6Æ74æÖSÒ'FW‡B×‡26Ó§FW‡B×6ÒFW‡BÕ²3d#TSSUÒÆVF–æuš®x§‚ÚîÆ­yÚ.¶›­¢¸ Šv¥¶‰Ê.žÝyÓTèµ©hºÚn¶X§zÍK\™[^Y]Lˆ‚ˆÙ\Ü^Q\ØßBˆÜ‚ˆÙ]‚‚ˆËÊˆ‹ˆÜœÚ^XHÈÙÈ[›\ÚYÛX[\šH
-ÜÚ\›\šHXÚ[ŠH
-‹ßBˆÚ][K˜\šX[È	‰ˆ][K˜\šX[Ë›[™Ýˆ	‰ˆ
-ˆ]ˆÛ\ÜÓ˜[YOHœÜXÙK^KLˆLH›Ü™\‹]›Ü™\‹VÈÑQM‘×H‚ˆX™[Û\ÜÓ˜[YOH^^È›ÛX›Û\\˜Ø\ÙH˜XÚÚ[™Ë]ÚY\ˆ^VÈÌQŒPLM×H›^][\ËXÙ[\ˆØ\LKH‚ˆ][œÚ[ÐÜ›ÜÜÙYÚ^™O^ÌMHÛ\ÜÓ˜[YOH^VÈÑMLQ—HˆÏ‚ˆÜ[”ÜœÚ^XHZ›Z[šH[›[™ÎÜÜ[‚ˆÛX™[‚ˆ]ˆÛ\ÜÓ˜[YOH™ÜšYÜšYXÛÛËLÈØ\Lˆ‚ˆÚ][K˜\šX[Ë›X\
+              <div className="absolute top-4 left-4 z-10">
+                <span className="inline-flex items-center gap-1.5 px-3 py-1 rounded-full text-xs font-bold bg-[#D94E1F] text-white shadow-brand-sm">
+                  <Flame size={12} className="fill-white" />
+                  <span>{item.badge}</span>
+                </span>
+              </div>
+            )}
 
-ŠHOˆÂˆÛÛœÝ\ÔÙ[XÝYHÙ[XÝY˜\šX[ËšYOOH‹šYˆÛÛœÝ“˜[YHH–Ø˜[YIÛ[™Ë˜Ú\]
-
-KÕ\\Ø\ÙJ
-H
-È[™ËœÛXÙJJ_XH‹ÙZYÚˆ™]\›ˆ
-ˆ]Û‚ˆÙ^O^Ý‹šYBˆ\OH˜]Ûˆ‚ˆÛÛXÚÏ^Ê
-HOˆÙ]Ù[XÝY˜\šX[
-Š_BˆÛ\ÜÓ˜[YO^ØL‹H›Ý[™YLž›Ü™\ˆ^XÙ[\ˆ˜[œÚ][Û‹X[Ý\œÛÜ‹\Ú[\ˆ	Âˆ\ÔÙ[XÝYˆÈ	Ø›Ü™\‹VÈÑMLQ—H™ËVÈÑ‘QŒP—H^VÈÑMLQ—HÚYÝË]Ø\›K^ÉÂˆˆ	Ø›Ü™\‹VÈÑQM‘×H™ËVÈÑQÑŒ—H^VÈÍQMMWHÝ™\Ž^VÈÌQŒPLM×IÂˆXBˆ‚ˆ]ˆÛ\ÜÓ˜[YOH^^È›ÛY^˜X›ÛXY[™Ë]YÚ‚ˆÝ‹ÙZYÚBˆÙ]‚ˆ]ˆÛ\ÜÓ˜[YOH^VÌL\H›ÛX›XÚÈ^VÈÑMŽQH]LH‚ˆÙ›Ü›X]šXÙJ‹œšXÙJ_BˆÙ]‚ˆØ]Û‚ˆ
-BˆJ_BˆÙ]‚ˆÙ]‚ˆ
-_B‚ˆËÊˆËˆ•[ÛYØH[ÉÜÚ[XÚHˆ
-Ü[Û˜[Y[ÛœÊHÚZØ›Þ\ˆ›ÉÞ^]H
-‹ßBˆ]ˆÛ\ÜÓ˜[YOHœÜXÙK^KL‹HLˆ›Ü™\‹]›Ü™\‹VÈÑQM‘×H‚ˆ]ˆÛ\ÜÓ˜[YOH™›^][\ËXÙ[\ˆ\ÝYžKX™]ÙY[ˆ‚ˆX™[Û\ÜÓ˜[YOH^^È›ÛX›Û\\˜Ø\ÙH˜XÚÚ[™Ë]ÚY\ˆ5¶‰žËkºwµçaÐµlŒÅÅÄÝt™±•à¥Ñ•µÌµ•¹Ñ•È…À´Ä¸Ôˆø(€€€€€€€€€€€€€€€€€€€€ñMÁ…É­±•ÌÍ¥é”õìÄÑô±…ÍÍ9…µ”ô‰Ñ•áÐµlØåÈÑtˆ€¼ø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸ùQ…½µ„Å¿ŠaÍ¡¥µ¡„µ…Í…±±¥Å±…Èèð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€ð½±…‰•°ø(€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ñ•áÐµlÄÅÁátÑ•áÐµlŒÙÕÔÕtˆù¥áÑ¥å½É¥äð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰ÍÁ…”µä´Èµ…àµ ´Ðà½Ù•É™±½Üµäµ…ÕÑ¼ÁÈ´Ä¹¼µÍÉ½±±‰…Èˆø(€€€€€€€€€€€€€€€€€í…Ù…¥±…‰±•‘‘½¹Ì¹µ…À ¡…‘‘½¸¤€ôøì(€€€€€€€€€€€€€€€€€€€½¹ÍÐ¥Í¡•­•€ôÍ•±•Ñ•‘‘‘½¹Ì¹Í½µ” ¡„¤€ôø„¹¥€ôôô…‘‘½¸¹¥¤(€€€€€€€€€€€€€€€€€€€½¹ÍÐ…‘‘½¹9…µ”€ô…‘‘½¸¹¹…µ•m±…¹tñð…‘‘½¸¹¹…µ”¹Õè((€€€€€€€€€€€€€€€€€€€É•ÑÕÉ¸€ (€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø(€€€€€€€€€€€€€€€€€€€€€€€­•äõí…‘‘½¸¹¥‘ô(€€€€€€€€€€€€€€€€€€€€€€€½¹±¥¬õì ¤€ôøÑ½±•‘‘½¸¡…‘‘½¸¥ô(€€€€€€€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”õí™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ‰•ÑÝ••¸À´È¸ÔÁà´ÌÉ½Õ¹‘•´Éá°‰½É‘•ÈÑÉ…¹Í¥Ñ¥½¸µ…±°ÕÉÍ½ÈµÁ½¥¹Ñ•È€‘ì(€€€€€€€€€€€€€€€€€€€€€€€€€¥Í¡•­•(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ü€‰½É‘•ÈµläÑÅt‰œµlÁ	t¼ØÀÑ•áÐµlŒÅÅÄÝtœ(€€€€€€€€€€€€€€€€€€€€€€€€€€€€è€‰½É‘•ÈµlÙt‰œµlÝÉt¼ØÀ¡½Ù•Èé‰œµlÝÉtÑ•áÐµlŒÙÕÔÕtœ(€€€€€€€€€€€€€€€€€€€€€€€õô(€€€€€€€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰™±•à¥Ñ•µÌµ•¹Ñ•È…À´È¸Ôˆø(€€€€€€€€€€€€€€€€€€€€€€€€€ì¼¨¡•­‰½à­Ù…‘É…Ñ¡…Í¤€¨½ô(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”õíÜ´Ô ´ÔÉ½Õ¹‘•µ±œ‰½É‘•È™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ•¹Ñ•ÈÑÉ…¹Í¥Ñ¥½¸µ½±½ÉÌ€‘ì(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€¥Í¡•­•(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ü€‰œµläÑÅt‰½É‘•ÈµläÑÅtÑ•áÐµÝ¡¥Ñ”œ(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€è€‰½É‘•ÈµlÙt‰œµÝ¡¥Ñ”œ(€€€€€€€€€€€€€€€€€€€€€€€€€€€õô(€€€€€€€€€€€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€í¥Í¡•­•€˜˜€ñ¡•¬Í¥é”õìÄÍôÍÑÉ½­•]¥‘Ñ õìÍô€¼ùô(€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ñ•áÐµÍ´Í•±•Ðµ¹½¹”ˆùí…‘‘½¸¹•µ½©¥ôð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ñ•áÐµáÌ™½¹ÐµÍ•µ¥‰½±Ñ•áÐµlŒÅÅÄÝtˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€í…‘‘½¹9…µ•ô(€€€€€€€€€€€€€€€€€€€€€€€€€€ð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ñ•áÐµáÌ™½¹Ðµ•áÑÉ…‰½±Ñ•áÐµläÑÅtÝ¡¥Ñ•ÍÁ…”µ¹½ÝÉ…Àˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€­í™½Éµ…ÑAÉ¥”¡…‘‘½¸¹ÁÉ¥”¥ôíÐ Õ¹¥ÑÌ¹ÕÉÉ•¹äœ¥ô(€€€€€€€€€€€€€€€€€€€€€€€€ð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€¤(€€€€€€€€€€€€€€€€€ô¥ô(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€ì¼¨ƒŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠV@(€€€€€€€€€€€€€€€€Ð¸AMQ-$E%M4è5¥Å‘½ÈÑ…¹±…¥ € ´€Ä€¬¤Ù„-…ÑÑ„QÕµ„(€€€€€€€€€€€ƒŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠVCŠV@€¨½ô(€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰À´ÔÍ´éÀ´Ø‰œµlÝÉt‰½É‘•ÈµÐ‰½É‘•ÈµlÙt™±•à™±•àµ½°Í´é™±•àµÉ½Ü¥Ñ•µÌµ•¹Ñ•È…À´Ì¸ÔµÐµ…ÕÑ¼ˆø(€€€€€€€€€€€€€€(€€€€€€€€€€€€€ì¼¨5¥Å‘½ÈÑ…¹±…¥ € ´€Ä€¬¤€¨½ô(€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰™±•à¥Ñ•µÌµ•¹Ñ•È…À´È‰œµÝ¡¥Ñ”‰½É‘•È‰½É‘•ÈµlÙtÀ´Ä¸ÔÁà´ÌÉ½Õ¹‘•´Éá°Í¡…‘½ÜµÝ…É´µáÌÜµ™Õ±°Í´éÜµ…ÕÑ¼©ÕÍÑ¥™äµ‰•ÑÝ••¸Í´é©ÕÍÑ¥™äµÍÑ…ÉÐˆø(€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸(€€€€€€€€€€€€€€€€€ÑåÁ”ô‰‰ÕÑÑ½¸ˆ(€€€€€€€€€€€€€€€€€½¹±¥¬õì ¤€ôøÍ•ÑEÕ…¹Ñ¥Ñä ¡Ä¤€ôø5…Ñ ¹µ…à Ä°Ä€´€Ä¤¥ô(€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”ô‰Ü´à ´àÉ½Õ¹‘•µá°‰œµlÝÉt¡½Ù•Èé‰œµlÙtÑ•áÐµlŒÅÅÄÝt™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ•¹Ñ•È™½¹Ðµ‰½±ÑÉ…¹Í¥Ñ¥½¸µ½±½ÉÌ…Ñ¥Ù”éÍ…±”´äÀÕÉÍ½ÈµÁ½¥¹Ñ•Èˆ(€€€€€€€€€€€€€€€€€…É¥„µ±…‰•°ô‰-…µ…åÑ¥É¥Í ˆ(€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€ñ5¥¹ÕÌÍ¥é”õìÄÑôÍÑÉ½­•]¥‘Ñ õìÈ¸Õô€¼ø(€€€€€€€€€€€€€€€€ð½‰ÕÑÑ½¸ø(€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰™½¹Ðµ•áÑÉ…‰½±Ñ•áÐµlŒÅÅÄÝtÑ•áÐµ‰…Í”µ¥¸µÜµlÈáÁátÑ•áÐµ•¹Ñ•Èˆø(€€€€€€€€€€€€€€€€€íÅÕ…¹Ñ¥Ñåô(€€€€€€€€€€€€€€€€ð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸(€€€€€€€€€€€€€€€€€ÑåÁ”ô‰‰ÕÑÑ½¸ˆ(€€€€€€€€€€€€€€€€€½¹±¥¬õì ¤€ôøÍ•ÑEÕ…¹Ñ¥Ñä ¡Ä¤€ôøÄ€¬€Ä¥ô(€€€€€€€€€€€€€€€€€±…ÍÍ9…µ”ô‰Ü´à ´àÉ½Õ¹‘•µá°‰œµlÝÉt¡½Ù•Èé‰œµlÙtÑ•áÐµlŒÅÅÄÝt™±•à¥Ñ•µÌµ•¹Ñ•È©ÕÍÑ¥™äµ•¹Ñ•È™½¹Ðµ‰½±ÑÉ…¹Í¥Ñ¥½¸µ½±½ÉÌ…Ñ¥Ù”éÍ…±”´äÀÕÉÍ½ÈµÁ½¥¹Ñ•Èˆ(€€€€€€€€€€€€€€€€€…É¥„µ±…‰•°ô‰-¼Á…åÑ¥É¥Í ˆ(€€€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€€€ñA±ÕÌÍ¥é”õìÄÑôÍÑÉ½­•]¥‘Ñ õìÈ¸Õô€¼ø(€€€€€€€€€€€€€€€€ð½‰ÕÑÑ½¸ø(€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€ì¼¨UµÕµ¥ä¹…Éá±¤-…ÑÑ„€‰M…Ù…Ñ¡…„Å¼Í¡¥Í ˆÑÕµ…Í¤€¨½ô(€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸(€€€€€€€€€€€€€€€ÑåÁ”ô‰‰ÕÑÑ½¸ˆ(€€€€€€€€€€€€€€€½¹±¥¬õí¡…¹‘±•‘‘Q½…ÉÑô(€€€€€€€€€€€€€€€±…ÍÍ9…µ”ô‰‰Ñ¸µÁÉ¥µ…Éä‰Ñ¸µ±œ™±•à´ÄÜµ™Õ±°…À´È©ÕÍÑ¥™äµ•¹Ñ•ÈÍ¡…‘½Üµ‰É…¹µµÕÉÍ½ÈµÁ½¥¹Ñ•ÈÑ•áÐµÍ´Í´éÑ•áÐµ‰…Í”™½¹Ðµ•áÑÉ…‰½±ˆ(€€€€€€€€€€€€€€ø(€€€€€€€€€€€€€€€€ñM¡½ÁÁ¥¹	…œÍ¥é”õìÄåô€¼ø(€€€€€€€€€€€€€€€€ñÍÁ…¸ø(€€€€€€€€€€€€€€€€€íÐ µ•¹Ô¹…‘‘Q½…ÉÐœ¥ôƒŠPí™½Éµ…ÑAÉ¥”¡™¥¹…±Q½Ñ…±AÉ¥”¥ôíÐ Õ¹¥ÑÌ¹ÕÉÉ•¹äœ¥ô(€€€€€€€€€€€€€€€€ð½ÍÁ…¸ø(€€€€€€€€€€€€€€ð½‰ÕÑÑ½¸ø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ð½µ½Ñ¥½¸¹‘¥Øø(€€€€€€ð½‘¥Øø(€€€€ð½¹¥µ…Ñ•AÉ•Í•¹”ø(€€¤)ô(4(
+            {/* Kaloriya (kcal) va Tayyorlanish vaqti */}
+            <div className="absolute bottom-4 left-4 right-4 z-10 flex items-center gap-2.5 text-white">
+              {item.calories && (
+                <div className="px-3 py-1.5 rounded-full bg-black/60 backdrop-blur-md text-xs font-bold flex items-center gap-1.5 border border-white/10">
+                  <Flame size={14} className="text-[#E69D24]" />
+                  <span>{item.calories} kcal</span>
+                </div>
+              )}
+              {item.prepTime && (
+                <div className="px-3 py-1.5 rounded-full bg-black/60 backdrop-blur-md text-xs font-bold flex items-center gap-1.5 border border-white/10">
+                  <Clock size={14} className="text-[#D94E1F]" />
+                  <span>{item.prepTime}</span>
+                </div>
+              )}
+            </div>
+          </div>
+
+          {/* â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•
+              2. O'NG USTUN: Tavsif, Porsiyalar, Qo'shimchalar
+          â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â• */}
+          <div className="md:w-1/2 flex flex-col justify-between overflow-y-auto max-h-[60vh] md:max-h-[92vh]">
+            <div className="p-6 sm:p-7 space-y-5">
+              {/* Sarlavha va Kategoriya */}
+              <div>
+                <span className="text-[11px] font-bold uppercase tracking-wider text-[#D94E1F]">
+                  Plov City Oshxonasi
+                </span>
+                <h2 className="text-xl sm:text-2xl font-extrabold text-[#1F1A17] mt-0.5 leading-snug">
+                  {displayName}
+                </h2>
+                <p className="text-xs sm:text-sm text-[#6B5E55] leading-relaxed mt-2">
+                  {displayDesc}
+                </p>
+              </div>
+
+              {/* 2. Porsiya / kg tanlash tugmalari (Osh turlari uchun) */}
+              {item.variants && item.variants.length > 0 && (
+                <div className="space-y-2 pt-1 border-t border-[#EDE6DC]">
+                  <label className="text-xs font-bold uppercase tracking-wider text-[#1F1A17] flex items-center gap-1.5">
+                    <UtensilsCrossed size={14} className="text-[#D94E1F]" />
+                    <span>Porsiya hajmini tanlang:</span>
+                  </label>
+                  <div className="grid grid-cols-3 gap-2">
+                    {item.variants.map((v) => {
+                      const isSelected = selectedVariant?.id === v.id
+                      const vName = v[`name${lang.charAt(0).toUpperCase() + lang.slice(1)}`] || v.weight
+                      return (
+                        <button
+                          key={v.id}
+                          type="button"
+                          onClick={() => setSelectedVariant(v)}
+                          className={`p-2.5 rounded-2xl border text-center transition-all cursor-pointer ${
+                            isSelected
+                              ? 'border-[#D94E1F] bg-[#FEF0EB] text-[#D94E1F] shadow-warm-xs'
+                              : 'border-[#EDE6DC] bg-[#FAF7F2] text-[#6B5E55] hover:text-[#1F1A17]'
+                          }`}
+                        >
+                          <div className="text-xs font-extrabold leading-tight">
+                            {v.weight}
+                          </div>
+                          <div className="text-[11px] font-black text-[#E69D24] mt-1">
+                            {formatPrice(v.price)}
+                          </div>
+                        </button>
+                      )
+                    })}
+                  </div>
+                </div>
+              )}
+
+              {/* 3. "Taomga qo'shimcha" (Optional Add-ons) chekboxlar ro'yxati */}
+              <div className="space-y-2.5 pt-2 border-t border-[#EDE6DC]">
+                <div className="flex items-center justify-between">
+                  <label className="text-xs font-bold uppercase tracking-wider text-[#1F1A17] flex items-center gap-1.5">
+                    <Sparkles size={14} className="text-[#E69D24]" />
+                    <span>Taomga qoâ€˜shimcha masalliqlar:</span>
+                  </label>
+                  <span className="text-[11px] text-[#6B5E55]">ixtiyoriy</span>
+                </div>
+
+                <div className="space-y-2 max-h-48 overflow-y-auto pr-1 no-scrollbar">
+                  {availableAddons.map((addon) => {
+                    const isChecked = selectedAddons.some((a) => a.id === addon.id)
+                    const addonName = addon.name[lang] || addon.name.uz
+
+                    return (
+                      <div
+                        key={addon.id}
+                        onClick={() => toggleAddon(addon)}
+                        className={`flex items-center justify-between p-2.5 px-3 rounded-2xl border transition-all cursor-pointer ${
+                          isChecked
+                            ? 'border-[#D94E1F] bg-[#FEF0EB]/60 text-[#1F1A17]'
+                            : 'border-[#EDE6DC] bg-[#FAF7F2]/60 hover:bg-[#FAF7F2] text-[#6B5E55]'
+                        }`}
+                      >
+                        <div className="flex items-center gap-2.5">
+                          {/* Chekbox kvadratchasi */}
+                          <div
+                            className={`w-5 h-5 rounded-lg border flex items-center justify-center transition-colors ${
+                              isChecked
+                                ? 'bg-[#D94E1F] border-[#D94E1F] text-white'
+                                : 'border-[#EDE6DC] bg-white'
+                            }`}
+                          >
+                            {isChecked && <Check size={13} strokeWidth={3} />}
+                          </div>
+                          <span className="text-sm select-none">{addon.emoji}</span>
+                          <span className="text-xs font-semibold text-[#1F1A17]">
+                            {addonName}
+                          </span>
+                        </div>
+
+                        <span className="text-xs font-extrabold text-[#D94E1F] whitespace-nowrap">
+                          +{formatPrice(addon.price)} {t('units.currency')}
+                        </span>
+                      </div>
+                    )
+                  })}
+                </div>
+              </div>
+            </div>
+
+            {/* â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•
+                4. PASTKI QISM: Miqdor tanlagich (- 1 +) va Katta Tugma
+            â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â•â• */}
+            <div className="p-5 sm:p-6 bg-[#FAF7F2] border-t border-[#EDE6DC] flex flex-col sm:flex-row items-center gap-3.5 mt-auto">
+              
+              {/* Miqdor tanlagich (- 1 +) */}
+              <div className="flex items-center gap-2 bg-white border border-[#EDE6DC] p-1.5 px-3 rounded-2xl shadow-warm-xs w-full sm:w-auto justify-between sm:justify-start">
+                <button
+                  type="button"
+                  onClick={() => setQuantity((q) => Math.max(1, q - 1))}
+                  className="w-8 h-8 rounded-xl bg-[#FAF7F2] hover:bg-[#EDE6DC] text-[#1F1A17] flex items-center justify-center font-bold transition-colors active:scale-90 cursor-pointer"
+                  aria-label="Kamaytirish"
+                >
+                  <Minus size={14} strokeWidth={2.5} />
+                </button>
+                <span className="font-extrabold text-[#1F1A17] text-base min-w-[28px] text-center">
+                  {quantity}
+                </span>
+                <button
+                  type="button"
+                  onClick={() => setQuantity((q) => q + 1)}
+                  className="w-8 h-8 rounded-xl bg-[#FAF7F2] hover:bg-[#EDE6DC] text-[#1F1A17] flex items-center justify-center font-bold transition-colors active:scale-90 cursor-pointer"
+                  aria-label="Ko'paytirish"
+                >
+                  <Plus size={14} strokeWidth={2.5} />
+                </button>
+              </div>
+
+              {/* Umumiy narxli Katta "Savatchaga qo'shish" tugmasi */}
+              <button
+                type="button"
+                onClick={handleAddToCart}
+                className="btn-primary btn-lg flex-1 w-full gap-2 justify-center shadow-brand-md cursor-pointer text-sm sm:text-base font-extrabold"
+              >
+                <ShoppingBag size={19} />
+                <span>
+                  {t('menu.addToCart')} â€” {formatPrice(finalTotalPrice)} {t('units.currency')}
+                </span>
+              </button>
+            </div>
+          </div>
+        </motion.div>
+      </div>
+    </AnimatePresence>
+  )
+}
+
+
